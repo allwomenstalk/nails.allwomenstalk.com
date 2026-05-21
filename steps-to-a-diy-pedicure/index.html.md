@@ -3,7 +3,7 @@ title: "7 Steps to a DIY Pedicure ..."
 description: "Start with a Soak; Remove Polish; Exfoliate; Pay Attention to Calluses; Trim Your Nails; More ..."
 url: "https://nails.allwomenstalk.com/steps-to-a-diy-pedicure/"
 category: "nails"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Steps to a DIY Pedicure ...
@@ -42,16 +42,16 @@ Now sit back and take it easy while you wait for your toenails to dry. Have you 
 
 ## Related Posts
 
-- [nails of note flamingo square](https://nails.allwomenstalk.com/heres-how-to-wear-your-love-on-your-nails/)
-- [why my nails are breaking](https://nails.allwomenstalk.com/your-nails-are-bound-to-break-if-you-do-these-things/)
-- [easy at home french manicure](https://nails.allwomenstalk.com/how-to-create-the-perfect-french-manicure/)
 - [easy toothpick nail art](https://nails.allwomenstalk.com/nail-art-hacks-youll-be-glad-to-know/)
-- [nail polish smudges hours later](https://nails.allwomenstalk.com/manicure-mistakes-thatll-make-you-look-like-an-amateur/)
-- [how to stop a nail from splitting](https://nails.allwomenstalk.com/steps-to-stop-your-nails-from-splitting/)
+- [nails of note flamingo square](https://nails.allwomenstalk.com/heres-how-to-wear-your-love-on-your-nails/)
+- [clear sparkly acrylic nails](https://nails.allwomenstalk.com/tips-for-applying-fake-nails-at-home/)
 - [how to do a perfect manicure](https://nails.allwomenstalk.com/you-must-see-these-tutorials-for-a-perfect-manicure/)
 - [swirl nail art with toothpick](https://nails.allwomenstalk.com/heres-why-you-need-to-marble-your-fingernails-right-away/)
+- [easy at home french manicure](https://nails.allwomenstalk.com/how-to-create-the-perfect-french-manicure/)
+- [nail polish smudges hours later](https://nails.allwomenstalk.com/manicure-mistakes-thatll-make-you-look-like-an-amateur/)
 - [dip in toenail](https://nails.allwomenstalk.com/this-is-why-you-should-try-dip-dying-your-fingernails/)
-- [clear sparkly acrylic nails](https://nails.allwomenstalk.com/tips-for-applying-fake-nails-at-home/)
+- [how to stop a nail from splitting](https://nails.allwomenstalk.com/steps-to-stop-your-nails-from-splitting/)
+- [why my nails are breaking](https://nails.allwomenstalk.com/your-nails-are-bound-to-break-if-you-do-these-things/)
 - [7 Little Known Tips for a Perfect Manicure ...](https://allwomenstalk.com/7-little-known-tips-for-a-perfect-manicure/)
 - [7 Tips for an at-Home French Manicure ...](https://allwomenstalk.com/7-tips-for-an-at-home-french-manicure/)
 

@@ -3,7 +3,7 @@ title: "8 Top Nail Polishes of 2014 ..."
 description: "RgB Cosmetics - Scarlet; RgB Cosmetics - Blush; OPI - \"Polka.com\"; Sally Hansen - Barracuda; Sinful Colors - Boom Boom; More ..."
 url: "https://nails.allwomenstalk.com/top-nail-polishes-of/"
 category: "nails"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 8 Top Nail Polishes of 2014 ...
@@ -61,14 +61,14 @@ Don't be afraid to mix and match colors for a look that is truly all you! Are th
 ## Related Posts
 
 - [nail instagram names](https://nails.allwomenstalk.com/the-best-instagram-accounts-to-follow-for-some-serious-nail-art-inspo/)
-- [manicure for wedding](https://wedding.allwomenstalk.com/winter-wedding-nail-art-designs-for-your-special-day/)
-- [festive fingernails](https://nails.allwomenstalk.com/fabulously-festive-nail-art-tutorials/)
-- [neon turquoise nail polish](https://nails.allwomenstalk.com/fabulous-ways-to-wear-glitter-nail-polish/)
+- [black with pink glitter nails](https://nails.allwomenstalk.com/ideal-gifts-for-a-die-hard-nail-polish-fan/)
+- [nail designs for valentines](https://nails.allwomenstalk.com/fabulous-valentines-day-nail-art-designs/)
 - [best nail artists](https://nails.allwomenstalk.com/nail-artists-to-follow-in-instagram/)
 - [trending holiday nail colors](https://nails.allwomenstalk.com/nail-polish-colors-for-the-holidays/)
-- [black with pink glitter nails](https://nails.allwomenstalk.com/ideal-gifts-for-a-die-hard-nail-polish-fan/)
+- [manicure for wedding](https://wedding.allwomenstalk.com/winter-wedding-nail-art-designs-for-your-special-day/)
 - [new nails](https://nails.allwomenstalk.com/awesome-new-years-eve-nail-art-designs-to-help-you-ring-it-in/)
-- [nail designs for valentines](https://nails.allwomenstalk.com/fabulous-valentines-day-nail-art-designs/)
+- [neon turquoise nail polish](https://nails.allwomenstalk.com/fabulous-ways-to-wear-glitter-nail-polish/)
+- [festive fingernails](https://nails.allwomenstalk.com/fabulously-festive-nail-art-tutorials/)
 - [hanukkah inspired nails](https://nails.allwomenstalk.com/fantastic-hanukkah-nail-art-designs-to-help-you-celebrate/)
 - [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
 - [8 Acid Bright Nail Polish Colors to Try ...](https://makeup.allwomenstalk.com/acid-bright-nail-polish-colors-to-try/)
