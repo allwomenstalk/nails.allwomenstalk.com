@@ -3,7 +3,7 @@ title: "15 Home Remedies for Brittle Nails ..."
 description: "Olive Oil and Lemon Juice Mixture; Tea Tree Oil and Vitamin E; Massage; Sea Salt Treatment; Vitamin E Oil Night Treatment; More ..."
 url: "https://nails.allwomenstalk.com/home-remedies-for-brittle-nails/"
 category: "nails"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 15 Home Remedies for Brittle Nails ...
@@ -79,15 +79,15 @@ This article was written in collaboration with editor Sabrina Yates.
 ## Related Posts
 
 - [tricks to stop biting your nails](https://nails.allwomenstalk.com/tips-on-how-to-stop-biting-your-nails/)
-- [superdrug nail strengthener](https://nails.allwomenstalk.com/nail-treatment-products-you-must-try-for-nail-and-nail-polish-problems/)
-- [finger nail nubs](https://nails.allwomenstalk.com/tips-to-stop-biting-your-nails-before-your-fingers-look-like-nubs/)
-- [winter nail care tips](https://nails.allwomenstalk.com/essential-winter-nail-care-tips-to-know/)
-- [how make nail polish last longer](https://nails.allwomenstalk.com/tips-on-how-to-make-nail-polish-stay-on-longer-2/)
-- [brittle fingernails](https://nails.allwomenstalk.com/helpful-ways-you-can-strengthen-dry-and-brittle-nails/)
-- [how to hold yourself up with your hands](https://nails.allwomenstalk.com/ways-to-pamper-your-hands-and-improve-its-condition/)
 - [how to get nail polish to dry quick](https://nails.allwomenstalk.com/helpful-tips-on-how-to-make-your-nails-dry-faster/)
-- [how to increase nail strength](https://food.allwomenstalk.com/foods-that-strengthen-your-nails-and-how-to-add-them-to-your-diet/)
 - [what are my fingernails made of](https://nails.allwomenstalk.com/things-you-should-know-about-your-nails/)
+- [brittle fingernails](https://nails.allwomenstalk.com/helpful-ways-you-can-strengthen-dry-and-brittle-nails/)
+- [finger nail nubs](https://nails.allwomenstalk.com/tips-to-stop-biting-your-nails-before-your-fingers-look-like-nubs/)
+- [how to increase nail strength](https://food.allwomenstalk.com/foods-that-strengthen-your-nails-and-how-to-add-them-to-your-diet/)
+- [how make nail polish last longer](https://nails.allwomenstalk.com/tips-on-how-to-make-nail-polish-stay-on-longer-2/)
+- [superdrug nail strengthener](https://nails.allwomenstalk.com/nail-treatment-products-you-must-try-for-nail-and-nail-polish-problems/)
+- [winter nail care tips](https://nails.allwomenstalk.com/essential-winter-nail-care-tips-to-know/)
+- [how to hold yourself up with your hands](https://nails.allwomenstalk.com/ways-to-pamper-your-hands-and-improve-its-condition/)
 - [7 Tips on Maintaining Good Fingernails ...](https://allwomenstalk.com/7-tips-on-maintaining-good-fingernails/)
 - [7 Tips to Stop Biting Your Nails ...](https://allwomenstalk.com/7-tips-to-stop-biting-your-nails/)
 
