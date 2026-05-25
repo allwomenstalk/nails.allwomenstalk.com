@@ -3,7 +3,7 @@ title: "9 Show Stopping Shades of Nail Polish for Your Next Pedicure ..."
 description: "Formula X Sparklers in Made for You; Essie Nail Polish in Too Taboo; Nails Inc. Nail Polish in Baker Street; Chanel Le Vernis in Mirabella; Deborah Lippmann Nail Polish in She Drives Me Crazy; More ..."
 url: "https://nails.allwomenstalk.com/show-stopping-shades-of-nail-polish-for-your-next-pedicure/"
 category: "nails"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 9 Show Stopping Shades of Nail Polish for Your Next Pedicure ...
@@ -68,16 +68,16 @@ Whether you try out these exact shades of nail polish or low-cost dupes, I think
 
 ## Related Posts
 
+- [color riche le stylo smoky glistening garnet](https://nails.allwomenstalk.com/eclectic-nail-trends-to-try-this-summer/)
+- [pedi colour](https://nails.allwomenstalk.com/magnificent-mani-pedi-color-pairings-to-make-you-smile/)
+- [buntys jewelers](https://nails.allwomenstalk.com/top-nail-trends-for-fall/)
+- [pinterest halloween gifts](https://nails.allwomenstalk.com/spooky-halloween-nail-ideas-from-pinterest-to-try/)
 - [freddy krueger nails](https://nails.allwomenstalk.com/halloween-nail-art-tutorials-you-will-love/)
 - [popular nail colors this fall](https://nails.allwomenstalk.com/crazy-awesome-nail-polish-colors-for-fall/)
-- [pedi colour](https://nails.allwomenstalk.com/magnificent-mani-pedi-color-pairings-to-make-you-smile/)
-- [color riche le stylo smoky glistening garnet](https://nails.allwomenstalk.com/eclectic-nail-trends-to-try-this-summer/)
-- [pure ice nail polish](https://nails.allwomenstalk.com/fall-for-new-pure-ice-fall-nail-colors/)
-- [diy nails designs](https://nails.allwomenstalk.com/wicked-diy-nail-designs-for-the-back-to-school-season/)
-- [buntys jewelers](https://nails.allwomenstalk.com/top-nail-trends-for-fall/)
-- [gucci red nail polish](https://nails.allwomenstalk.com/mani-mania-heres-guccis-fall-nail-polish-line/)
 - [Mani Mania: Best Nude Polishes for Fall ...](https://nails.allwomenstalk.com/mani-mania-best-nude-polishes-for-fall/)
-- [pinterest halloween gifts](https://nails.allwomenstalk.com/spooky-halloween-nail-ideas-from-pinterest-to-try/)
+- [diy nails designs](https://nails.allwomenstalk.com/wicked-diy-nail-designs-for-the-back-to-school-season/)
+- [gucci red nail polish](https://nails.allwomenstalk.com/mani-mania-heres-guccis-fall-nail-polish-line/)
+- [pure ice nail polish](https://nails.allwomenstalk.com/fall-for-new-pure-ice-fall-nail-colors/)
 - [8 Tips for Choosing the Right Nail Polish ...](https://makeup.allwomenstalk.com/8-tips-for-choosing-the-right-nail-polish/)
 - [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
 

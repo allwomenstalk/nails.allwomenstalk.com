@@ -3,7 +3,7 @@ title: "7 Flirty and Fun Nail Polishes for Valentines Day ..."
 description: "OPI Nail Lacquer in Big Apple Red; Milani Neon Nail Lacquer in Pink Hottie; Sally Hansen Salon Effects Nail Strips in the Bold Rush; Essie Nail Color - Jamaica Me Crazy; OPI Mod about You; More ..."
 url: "https://nails.allwomenstalk.com/flirty-and-fun-nail-polishes-for-valentines-day/"
 category: "nails"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Flirty and Fun Nail Polishes for Valentines Day ...
@@ -58,16 +58,16 @@ This article was written in collaboration with editor Lyndsie Robinson.
 
 ## Related Posts
 
-- [chanel.nail polish](https://nails.allwomenstalk.com/budget-friendly-dupes-for-the-most-coveted-high-end-nail-polishes/)
-- [fun nail](https://nails.allwomenstalk.com/fun-nail-polish-combinations-to-try-this-spring/)
-- [celebrity nail polish](https://nails.allwomenstalk.com/gorgeous-celebrity-nail-polishes-to-try/)
-- [nail polish that cracks when it dries](https://nails.allwomenstalk.com/best-crackle-nail-polishes/)
-- [best nail color for everyday](https://nails.allwomenstalk.com/colors-you-need-to-start-a-nail-polish-collection/)
-- [cute animal nail art designs](https://nails.allwomenstalk.com/cutest-animal-nail-art-tutorials/)
-- [santa hat nails](https://nails.allwomenstalk.com/dessert-nail-art-tutorials-too-sweet-to-resist/)
-- [nail polish double colour](https://nails.allwomenstalk.com/on-trend-nail-polish-colors-for-spring/)
 - [latest toenail colors](https://nails.allwomenstalk.com/best-toe-nail-polish-colors-to-wear-this-spring/)
+- [celebrity nail polish](https://nails.allwomenstalk.com/gorgeous-celebrity-nail-polishes-to-try/)
+- [best nail color for everyday](https://nails.allwomenstalk.com/colors-you-need-to-start-a-nail-polish-collection/)
+- [chanel.nail polish](https://nails.allwomenstalk.com/budget-friendly-dupes-for-the-most-coveted-high-end-nail-polishes/)
+- [nail polish double colour](https://nails.allwomenstalk.com/on-trend-nail-polish-colors-for-spring/)
+- [nail polish that cracks when it dries](https://nails.allwomenstalk.com/best-crackle-nail-polishes/)
+- [fun nail](https://nails.allwomenstalk.com/fun-nail-polish-combinations-to-try-this-spring/)
 - [nail art decal](https://nails.allwomenstalk.com/best-nail-art-decals/)
+- [santa hat nails](https://nails.allwomenstalk.com/dessert-nail-art-tutorials-too-sweet-to-resist/)
+- [cute animal nail art designs](https://nails.allwomenstalk.com/cutest-animal-nail-art-tutorials/)
 - [7 Most Fashionable Nail Polishes of Today ...](https://allwomenstalk.com/7-most-fashionable-nail-polishes-of-today/)
 - [7 Gorgeous Nail Polishes for Fall ...](https://allwomenstalk.com/7-gorgeous-nail-polishes-for-fall/)
 
