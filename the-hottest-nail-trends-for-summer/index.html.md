@@ -30,16 +30,16 @@ There is a feeling of going back to basics for this summer’s nail trends, and 
 
 ## Related Posts
 
+- [dolls nails](https://nails.allwomenstalk.com/of-todays-mesmerizing-nail-inspo-for-confident-dolls/)
 - [easter nails different colors](https://nails.allwomenstalk.com/these-nail-art-patterns-will-make-your-easter-holiday-something-really-special/)
-- [fall season nail colors](https://nails.allwomenstalk.com/of-the-most-beautiful-fall-season-nail-polish-colors/)
-- [that girl nail inspo](https://nails.allwomenstalk.com/hottest-nail-inspiration-on-instagram/)
-- [acrylic nails vs dip](https://nails.allwomenstalk.com/gel-acrylic-or-dip-which-gives-the-best-nails/)
 - [nail art for ladies](https://nails.allwomenstalk.com/nude-nail-designs-for-girls-who-like-to-keep-it-simple/)
-- [irresistible nails](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram-5/)
 - [nauls inspo](https://nails.allwomenstalk.com/nail-inspiration-from-instagram/)
 - [healthiest nail polish brands](https://nails.allwomenstalk.com/healthy-nail-polish-brands/)
-- [dolls nails](https://nails.allwomenstalk.com/of-todays-mesmerizing-nail-inspo-for-confident-dolls/)
+- [that girl nail inspo](https://nails.allwomenstalk.com/hottest-nail-inspiration-on-instagram/)
 - [negative space nail ideas](https://nails.allwomenstalk.com/negative-space-is-the-new-ig-hot-nail-trend/)
+- [fall season nail colors](https://nails.allwomenstalk.com/of-the-most-beautiful-fall-season-nail-polish-colors/)
+- [irresistible nails](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram-5/)
+- [acrylic nails vs dip](https://nails.allwomenstalk.com/gel-acrylic-or-dip-which-gives-the-best-nails/)
 - [9 on-Trend Spring Nail Colors ...](https://makeup.allwomenstalk.com/on-trend-spring-nail-colors/)
 - [8 Sexiest Nail Polish ...](https://allwomenstalk.com/8-sexiest-nail-polish/)
 

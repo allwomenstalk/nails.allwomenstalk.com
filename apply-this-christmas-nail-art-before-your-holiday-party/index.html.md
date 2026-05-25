@@ -140,16 +140,16 @@ Which one is your favorite? Do you think you can copy it?
 
 ## Related Posts
 
-- [nail trend](https://nails.allwomenstalk.com/love-or-hate-the-nail-trends-of-that-divided-opinion/)
-- [paper nail ideas](https://nails.allwomenstalk.com/booksworms-will-love-this-newspaper-nail-art/)
 - [sharpie on nails](https://nails.allwomenstalk.com/pieces-of-nail-art-you-can-create-with-a-sharpie/)
+- [nail trends 2016](https://nails.allwomenstalk.com/these-are-the-hottest-nails-trends-for/)
+- [paper nail ideas](https://nails.allwomenstalk.com/booksworms-will-love-this-newspaper-nail-art/)
+- [pink floyd nail designs](https://nails.allwomenstalk.com/youre-going-to-love-this-grunge-nail-art/)
+- [nail trend](https://nails.allwomenstalk.com/love-or-hate-the-nail-trends-of-that-divided-opinion/)
+- [animal with nails](https://nails.allwomenstalk.com/show-off-your-wild-side-with-these-animal-print-nails/)
 - [funky nail polish](https://nails.allwomenstalk.com/use-these-funky-colors-to-give-your-nails-some-personality/)
 - [winter nail art](https://nails.allwomenstalk.com/winter-nail-art-thats-gorgeous-and-glittery/)
-- [nail trends 2016](https://nails.allwomenstalk.com/these-are-the-hottest-nails-trends-for/)
-- [pink floyd nail designs](https://nails.allwomenstalk.com/youre-going-to-love-this-grunge-nail-art/)
-- [animal with nails](https://nails.allwomenstalk.com/show-off-your-wild-side-with-these-animal-print-nails/)
-- [basketball toenails](https://nails.allwomenstalk.com/basketball-nails-thatll-get-you-pumped-for-march-madness/)
 - [coral ombre nails](https://nails.allwomenstalk.com/ombre-nail-tutorials-thatll-teach-you-how-to-look-your-best/)
+- [basketball toenails](https://nails.allwomenstalk.com/basketball-nails-thatll-get-you-pumped-for-march-madness/)
 - [8 Pretty Holiday Manicure and Pedicure ...](https://allwomenstalk.com/8-pretty-holiday-manicure-and-pedicure/)
 - [7 Amazing Nail Appliqus to Try This Fall ...](https://nails.allwomenstalk.com/amazing-nail-appliques-to-try-this-fall/)
 

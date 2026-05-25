@@ -118,16 +118,16 @@ Now you can make your nails look unbelievable! What color do you usually paint y
 
 ## Related Posts
 
-- [spring bling nail designs](https://nails.allwomenstalk.com/pieces-of-springtime-nail-art-inspiration/)
-- [elegant fingernail designs](https://nails.allwomenstalk.com/an-elegant-nail-design-for-the-fanciest-occasions/)
-- [nails emoji text](https://nails.allwomenstalk.com/pieces-of-emoji-nail-art-for-phone-addicts/)
-- [nail art for work](https://nails.allwomenstalk.com/work-friendly-nail-art-that-your-coworkers-will-flip-over/)
-- [fall matte nails](https://nails.allwomenstalk.com/matte-nail-art-inspiration-thatll-make-you-look-elegant/)
-- [nordstrom chanel nail polish](https://nails.allwomenstalk.com/look-pretty-in-pale-polish-with-this-easter-nail-art/)
 - [nab beauty](https://nails.allwomenstalk.com/nails-colors-you-should-nab-for-spring/)
 - [loreal paris riche le eye golden emerald](https://nails.allwomenstalk.com/statement-nail-colours-for/)
-- [long lasting drugstore nail polish](https://nails.allwomenstalk.com/which-long-lasting-nail-polish-brands-actually-work/)
+- [nail art for work](https://nails.allwomenstalk.com/work-friendly-nail-art-that-your-coworkers-will-flip-over/)
+- [elegant fingernail designs](https://nails.allwomenstalk.com/an-elegant-nail-design-for-the-fanciest-occasions/)
 - [nail designs toes](https://nails.allwomenstalk.com/the-best-toe-nail-art-to-wear-with-your-flip-flops/)
+- [nails emoji text](https://nails.allwomenstalk.com/pieces-of-emoji-nail-art-for-phone-addicts/)
+- [nordstrom chanel nail polish](https://nails.allwomenstalk.com/look-pretty-in-pale-polish-with-this-easter-nail-art/)
+- [fall matte nails](https://nails.allwomenstalk.com/matte-nail-art-inspiration-thatll-make-you-look-elegant/)
+- [spring bling nail designs](https://nails.allwomenstalk.com/pieces-of-springtime-nail-art-inspiration/)
+- [long lasting drugstore nail polish](https://nails.allwomenstalk.com/which-long-lasting-nail-polish-brands-actually-work/)
 - [7 Summer Beauty Tips ...](https://makeup.allwomenstalk.com/summer-beauty-tips-2/)
 - [7 Great Tips on How to Look Good in Pictures ...](https://beauty.allwomenstalk.com/great-tips-on-how-to-look-good-in-pictures/)
 

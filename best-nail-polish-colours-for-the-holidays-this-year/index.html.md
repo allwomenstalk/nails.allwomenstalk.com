@@ -56,16 +56,16 @@ An outfit isn’t complete until your nails are painted so try one or all of the
 
 ## Related Posts
 
+- [sephora nail decals](https://nails.allwomenstalk.com/nail-stickers-for-a-fun-and-flirty-manicure/)
 - [no design nails](https://nails.allwomenstalk.com/easy-nail-designs-and-art-for-amateurs/)
+- [celebrities nail designs](https://nails.allwomenstalk.com/trendsetting-celebrities-who-are-known-for-their-nail-art-obsession/)
+- [nail fun facts](https://nails.allwomenstalk.com/fun-facts-about-nail-polish-brands-you-should-know/)
+- [nail polish double colour](https://nails.allwomenstalk.com/pretty-nail-polish-color-combinations-to-try/)
+- [gothic red nails](https://nails.allwomenstalk.com/fierce-red-manicures-you-need-to-try/)
 - [loreal paris le stylo infinite sky](https://nails.allwomenstalk.com/of-the-prettiest-nail-colors-by-essie/)
 - [manicure tutorials](https://nails.allwomenstalk.com/stylish-youtube-manicure-tutorials-to-watch-for-date-night/)
 - [glitter french tip pedicure](https://nails.allwomenstalk.com/tempting-french-manicure-variations-to-try-today/)
-- [nail fun facts](https://nails.allwomenstalk.com/fun-facts-about-nail-polish-brands-you-should-know/)
-- [sephora nail decals](https://nails.allwomenstalk.com/nail-stickers-for-a-fun-and-flirty-manicure/)
-- [celebrities nail designs](https://nails.allwomenstalk.com/trendsetting-celebrities-who-are-known-for-their-nail-art-obsession/)
 - [glitter pink nail designs](https://nails.allwomenstalk.com/pretty-pink-nail-designs-you-will-fawn-over/)
-- [gothic red nails](https://nails.allwomenstalk.com/fierce-red-manicures-you-need-to-try/)
-- [nail polish double colour](https://nails.allwomenstalk.com/pretty-nail-polish-color-combinations-to-try/)
 - [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
 - [7 Gorgeous Nail Polishes for Fall ...](https://allwomenstalk.com/7-gorgeous-nail-polishes-for-fall/)
 

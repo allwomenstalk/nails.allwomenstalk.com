@@ -36,15 +36,15 @@ Just like your body and skin, your nails need to breathe. Every week at least yo
 
 ## Related Posts
 
-- [how to do your own manicure](https://nails.allwomenstalk.com/steps-to-the-perfect-at-home-manicure/)
-- [8 Ways to Care for Your Hands ...](https://allwomenstalk.com/8-ways-to-care-for-your-hands/)
-- [10 Tips for Spring Nails ...](https://allwomenstalk.com/10-tips-for-spring-nails/)
-- [cracking of nails](https://nails.allwomenstalk.com/brilliant-ways-to-prevent-chipped-or-cracked-nail-polish/)
-- [Hand Care Tips and Recipes ...](https://allwomenstalk.com/hand-care-tips-and-recipes/)
-- [ts nail and spa](https://allwomenstalk.com/healthy-nail-dos-donts/)
 - [7 Little Known Tips for a Perfect Manicure ...](https://allwomenstalk.com/7-little-known-tips-for-a-perfect-manicure/)
-- [Pedicure Safety Tips ...](https://allwomenstalk.com/pedicure-safety-tips/)
+- [8 Ways to Care for Your Hands ...](https://allwomenstalk.com/8-ways-to-care-for-your-hands/)
+- [cracking of nails](https://nails.allwomenstalk.com/brilliant-ways-to-prevent-chipped-or-cracked-nail-polish/)
+- [how to do your own manicure](https://nails.allwomenstalk.com/steps-to-the-perfect-at-home-manicure/)
 - [Take Care of Your Feet. a Pedicure How-to ...](https://allwomenstalk.com/take-care-of-your-feet-a-pedicure-how-to/)
+- [10 Tips for Spring Nails ...](https://allwomenstalk.com/10-tips-for-spring-nails/)
+- [Hand Care Tips and Recipes ...](https://allwomenstalk.com/hand-care-tips-and-recipes/)
+- [Pedicure Safety Tips ...](https://allwomenstalk.com/pedicure-safety-tips/)
+- [ts nail and spa](https://allwomenstalk.com/healthy-nail-dos-donts/)
 - [14 Tips for Healthy Manicure ...](https://allwomenstalk.com/14-tips-for-healthy-manicure/)
 - [7 Tips on Maintaining Good Fingernails ...](https://allwomenstalk.com/7-tips-on-maintaining-good-fingernails/)
 - [7 Ways to Strengthen Your Nails ...](https://allwomenstalk.com/7-ways-to-strengthen-your-nails/)

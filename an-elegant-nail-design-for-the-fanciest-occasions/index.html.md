@@ -18,14 +18,14 @@ Would you love to do your nails like this?
 
 ## Related Posts
 
-- [pedicure looks](https://nails.allwomenstalk.com/intense-pedicures-that-went-way-too-far/)
-- [spring bling nail designs](https://nails.allwomenstalk.com/pieces-of-springtime-nail-art-inspiration/)
-- [long lasting drugstore nail polish](https://nails.allwomenstalk.com/which-long-lasting-nail-polish-brands-actually-work/)
 - [beachy colors for nails](https://nails.allwomenstalk.com/nail-colors-for-girls-who-spend-their-summer-at-the-beach/)
-- [wedding nails for bridesmaids](https://nails.allwomenstalk.com/nail-art-for-girls-who-are-going-to-be-bridesmaids-soon/)
-- [nail designs toes](https://nails.allwomenstalk.com/the-best-toe-nail-art-to-wear-with-your-flip-flops/)
 - [nail art for work](https://nails.allwomenstalk.com/work-friendly-nail-art-that-your-coworkers-will-flip-over/)
+- [wedding nails for bridesmaids](https://nails.allwomenstalk.com/nail-art-for-girls-who-are-going-to-be-bridesmaids-soon/)
 - [loreal paris riche le eye golden emerald](https://nails.allwomenstalk.com/statement-nail-colours-for/)
+- [long lasting drugstore nail polish](https://nails.allwomenstalk.com/which-long-lasting-nail-polish-brands-actually-work/)
+- [spring bling nail designs](https://nails.allwomenstalk.com/pieces-of-springtime-nail-art-inspiration/)
+- [nail designs toes](https://nails.allwomenstalk.com/the-best-toe-nail-art-to-wear-with-your-flip-flops/)
+- [pedicure looks](https://nails.allwomenstalk.com/intense-pedicures-that-went-way-too-far/)
 - [converse heart nails](https://nails.allwomenstalk.com/pieces-of-nail-art-for-girls-who-are-short-on-time/)
 - [summer red nails ideas](https://nails.allwomenstalk.com/summertime-nail-reds-for-girls-who-want-to-stand-out/)
 - [9 Awesome Nail Art Trends ...](https://makeup.allwomenstalk.com/awesome-nail-art-trends/)

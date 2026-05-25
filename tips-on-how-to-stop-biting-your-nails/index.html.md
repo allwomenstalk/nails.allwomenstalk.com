@@ -42,16 +42,16 @@ It is hard to stop biting your nails but it can be done. Share your story with m
 
 ## Related Posts
 
-- [manicure steps with pictures](https://nails.allwomenstalk.com/simple-steps-for-a-manicure-that-is-flawless/)
-- [salon manicure at home](https://nails.allwomenstalk.com/quick-tips-for-the-perfect-at-home-manicure/)
-- [good nail care can prevent](https://nails.allwomenstalk.com/nagging-nail-care-issues-solved/)
-- [nailtiques formula 1 vs 2](https://nails.allwomenstalk.com/nail-strengthening-products-youll-write-home-about/)
-- [monie love feet](https://nails.allwomenstalk.com/tips-for-banishing-ingrown-toenails-once-and-for-all/)
-- [how many coats of nail polish should i do](https://nails.allwomenstalk.com/tips-on-how-to-make-nail-polish-stay-on-longer-3/)
-- [how to take care of hands and nails at home](https://nails.allwomenstalk.com/care-tips-for-perfectly-groomed-hands-and-nails/)
-- [how to increase nail strength](https://food.allwomenstalk.com/foods-that-strengthen-your-nails-and-how-to-add-them-to-your-diet/)
-- [winter nail care tips](https://nails.allwomenstalk.com/essential-winter-nail-care-tips-to-know/)
 - [nail tips gel](https://nails.allwomenstalk.com/tips-for-maintaining-your-gel-nails/)
+- [salon manicure at home](https://nails.allwomenstalk.com/quick-tips-for-the-perfect-at-home-manicure/)
+- [winter nail care tips](https://nails.allwomenstalk.com/essential-winter-nail-care-tips-to-know/)
+- [how to increase nail strength](https://food.allwomenstalk.com/foods-that-strengthen-your-nails-and-how-to-add-them-to-your-diet/)
+- [how to take care of hands and nails at home](https://nails.allwomenstalk.com/care-tips-for-perfectly-groomed-hands-and-nails/)
+- [how many coats of nail polish should i do](https://nails.allwomenstalk.com/tips-on-how-to-make-nail-polish-stay-on-longer-3/)
+- [monie love feet](https://nails.allwomenstalk.com/tips-for-banishing-ingrown-toenails-once-and-for-all/)
+- [manicure steps with pictures](https://nails.allwomenstalk.com/simple-steps-for-a-manicure-that-is-flawless/)
+- [nailtiques formula 1 vs 2](https://nails.allwomenstalk.com/nail-strengthening-products-youll-write-home-about/)
+- [good nail care can prevent](https://nails.allwomenstalk.com/nagging-nail-care-issues-solved/)
 - [7 Tips for Taking Care of Your Cuticles ...](https://skincare.allwomenstalk.com/tips-for-taking-care-of-your-cuticles/)
 - [7 Tips on Maintaining Good Fingernails ...](https://allwomenstalk.com/7-tips-on-maintaining-good-fingernails/)
 

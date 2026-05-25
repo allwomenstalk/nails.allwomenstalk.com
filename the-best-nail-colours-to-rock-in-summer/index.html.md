@@ -63,16 +63,16 @@ Are you thinking of spending a lot of time at the beach this summer? If so, baby
 
 ## Related Posts
 
-- [chanel green nail polish](https://nails.allwomenstalk.com/revolutionary-new-non-toxic-nail-polishes-every-girl-needs/)
-- [nails contour](https://nails.allwomenstalk.com/nail-contouring-is-the-latest-art-you-need-to-learn-asap/)
-- [metallic nail varnish](https://nails.allwomenstalk.com/metallic-nail-polish-for-girls-who-want-to-sparkle-this-party-season/)
 - [boston marathon nails](https://nails.allwomenstalk.com/breathtaking-nail-ideas-for-girls-who-need-serious-nail-inspo/)
-- [fall nail designs](https://nails.allwomenstalk.com/gorgeous-nail-art-for-girls-with-short-nails/)
 - [grey nail color](https://nails.allwomenstalk.com/shades-of-grey-for-the-sexiest-nails-youve-ever-had/)
-- [fall colors for nail polish](https://nails.allwomenstalk.com/on-trend-pastel-nail-polishes-for-fall/)
-- [simple line nail designs](https://nails.allwomenstalk.com/follow-these-ig-accounts-if-you-love-yourself-some-nail-art/)
 - [autumn nails](https://nails.allwomenstalk.com/on-point-fall-nail-polish-trends-you-must-see/)
+- [metallic nail varnish](https://nails.allwomenstalk.com/metallic-nail-polish-for-girls-who-want-to-sparkle-this-party-season/)
+- [chanel green nail polish](https://nails.allwomenstalk.com/revolutionary-new-non-toxic-nail-polishes-every-girl-needs/)
+- [fall colors for nail polish](https://nails.allwomenstalk.com/on-trend-pastel-nail-polishes-for-fall/)
 - [fall beach nails](https://nails.allwomenstalk.com/best-nail-colors-for-fall-for-girls-who-love-a-fresh-mani/)
+- [simple line nail designs](https://nails.allwomenstalk.com/follow-these-ig-accounts-if-you-love-yourself-some-nail-art/)
+- [fall nail designs](https://nails.allwomenstalk.com/gorgeous-nail-art-for-girls-with-short-nails/)
+- [nails contour](https://nails.allwomenstalk.com/nail-contouring-is-the-latest-art-you-need-to-learn-asap/)
 - [8 Fun Nail Polish Trends for Summer ...](https://makeup.allwomenstalk.com/fun-nail-polish-trends-for-summer/)
 - [8 Fab Nails Colors for Summer 2012 ...](https://makeup.allwomenstalk.com/fab-nails-colors-for-summer/)
 

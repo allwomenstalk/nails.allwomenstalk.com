@@ -42,16 +42,16 @@ What are some looks that you can't wait to try? Are there any trends that you're
 
 ## Related Posts
 
-- [jelly roll nail designs](https://nails.allwomenstalk.com/food-nail-art-designs-that-will-make-you-really-hungry/)
-- [nail design black lines](https://nails.allwomenstalk.com/these-black-and-white-nail-art-patterns-will-rock-your-world/)
 - [steampunk claws](https://nails.allwomenstalk.com/steampunk-nails-that-will-blow-your-mind/)
+- [neon cheetah print nails](https://nails.allwomenstalk.com/wait-until-you-see-these-adorable-ideas-for-animal-nail-art/)
+- [nail design black lines](https://nails.allwomenstalk.com/these-black-and-white-nail-art-patterns-will-rock-your-world/)
+- [jelly roll nail designs](https://nails.allwomenstalk.com/food-nail-art-designs-that-will-make-you-really-hungry/)
 - [nails white with flowers](https://nails.allwomenstalk.com/wait-til-you-see-these-awesome-flower-nail-art-designs/)
+- [football nail design](https://nails.allwomenstalk.com/sports-nail-art-ideas-that-will-make-you-ready-for-game-time/)
+- [marvel character with long nails](https://nails.allwomenstalk.com/these-are-the-best-looking-superhero-nail-art-designs-in-the-world/)
+- [sample of nail art designs](https://nails.allwomenstalk.com/fantastic-mardi-gras-nail-art-ideas/)
 - [art designs for nails](https://nails.allwomenstalk.com/this-is-what-striped-nail-art-looks-like-fabulous-ideas/)
 - [ocean themed nail art](https://nails.allwomenstalk.com/really-cool-sea-creature-nail-art-patterns/)
-- [sample of nail art designs](https://nails.allwomenstalk.com/fantastic-mardi-gras-nail-art-ideas/)
-- [marvel character with long nails](https://nails.allwomenstalk.com/these-are-the-best-looking-superhero-nail-art-designs-in-the-world/)
-- [football nail design](https://nails.allwomenstalk.com/sports-nail-art-ideas-that-will-make-you-ready-for-game-time/)
-- [neon cheetah print nails](https://nails.allwomenstalk.com/wait-until-you-see-these-adorable-ideas-for-animal-nail-art/)
 - [8 Trendy Manicure Video Tutorials ...](https://nails.allwomenstalk.com/trendy-manicure-video-tutorials/)
 - [Summer Gets Even Hotter with These Nail Art Ideas ...](https://nails.allwomenstalk.com/summer-gets-even-hotter-with-these-nail-art-ideas/)
 

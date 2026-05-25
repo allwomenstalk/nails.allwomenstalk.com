@@ -80,16 +80,16 @@ Whether you’re celebrating a special occasion or just want to add some fun col
 
 ## Related Posts
 
-- [no design nails](https://nails.allwomenstalk.com/easy-nail-designs-and-art-for-amateurs/)
-- [glitter french tip pedicure](https://nails.allwomenstalk.com/tempting-french-manicure-variations-to-try-today/)
-- [unique toe rings](https://jewelry.allwomenstalk.com/playful-toe-rings-that-will-perfect-your-pedicure/)
 - [nail ideas for 10 year olds](https://nails.allwomenstalk.com/intricate-nail-designs-to-rock-at-school/)
 - [gothic red nails](https://nails.allwomenstalk.com/fierce-red-manicures-you-need-to-try/)
+- [unique toe rings](https://jewelry.allwomenstalk.com/playful-toe-rings-that-will-perfect-your-pedicure/)
 - [nail polish double colour](https://nails.allwomenstalk.com/pretty-nail-polish-color-combinations-to-try/)
+- [blue nails with black designs](https://nails.allwomenstalk.com/gorgeous-blue-nail-designs-to-sport-this-season/)
+- [no design nails](https://nails.allwomenstalk.com/easy-nail-designs-and-art-for-amateurs/)
+- [glitter french tip pedicure](https://nails.allwomenstalk.com/tempting-french-manicure-variations-to-try-today/)
+- [manicure tutorials](https://nails.allwomenstalk.com/stylish-youtube-manicure-tutorials-to-watch-for-date-night/)
 - [glitter pink nail designs](https://nails.allwomenstalk.com/pretty-pink-nail-designs-you-will-fawn-over/)
 - [zooey dechanel engagement ring](https://nails.allwomenstalk.com/electric-zooey-deschanel-inspired-nail-designs/)
-- [manicure tutorials](https://nails.allwomenstalk.com/stylish-youtube-manicure-tutorials-to-watch-for-date-night/)
-- [blue nails with black designs](https://nails.allwomenstalk.com/gorgeous-blue-nail-designs-to-sport-this-season/)
 - [8 Neat Ways to Decorate Your Nails ...](https://makeup.allwomenstalk.com/8-neat-ways-to-decorate-your-nails/)
 - [8 Pretty Holiday Manicure and Pedicure ...](https://allwomenstalk.com/8-pretty-holiday-manicure-and-pedicure/)
 

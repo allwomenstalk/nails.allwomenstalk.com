@@ -42,16 +42,16 @@ You can never have enough options to explore when it comes to having fresh and f
 
 ## Related Posts
 
-- [fun nails for summer](https://nails.allwomenstalk.com/fun-nail-patterns-for-summer/)
-- [essie terracotta nail polish](https://nails.allwomenstalk.com/show-stopping-shades-of-nail-polish-for-your-next-pedicure/)
-- [color riche le stylo smoky glistening garnet](https://nails.allwomenstalk.com/eclectic-nail-trends-to-try-this-summer/)
-- [sally hansen iridescent nail polish](https://nails.allwomenstalk.com/popular-nail-polishes-from-sally-hansen-you-should-have-in-your-collection/)
-- [pedi colour](https://nails.allwomenstalk.com/magnificent-mani-pedi-color-pairings-to-make-you-smile/)
-- [simple clear nail designs](https://nails.allwomenstalk.com/great-uses-for-clear-nail-polish-besides-your-nails/)
-- [nail ideas for hawaii](https://nails.allwomenstalk.com/super-cute-ideas-for-summer-nail-art/)
-- [gel manicure designs short nails](https://nails.allwomenstalk.com/dynamic-looks-for-short-nails/)
 - [pastel french tips](https://nails.allwomenstalk.com/fabulous-french-tip-designs/)
+- [simple clear nail designs](https://nails.allwomenstalk.com/great-uses-for-clear-nail-polish-besides-your-nails/)
+- [sally hansen iridescent nail polish](https://nails.allwomenstalk.com/popular-nail-polishes-from-sally-hansen-you-should-have-in-your-collection/)
+- [nail ideas for hawaii](https://nails.allwomenstalk.com/super-cute-ideas-for-summer-nail-art/)
+- [fun nails for summer](https://nails.allwomenstalk.com/fun-nail-patterns-for-summer/)
 - [nail art pinterst](https://nails.allwomenstalk.com/must-follow-nail-art-pinterest-boards/)
+- [essie terracotta nail polish](https://nails.allwomenstalk.com/show-stopping-shades-of-nail-polish-for-your-next-pedicure/)
+- [gel manicure designs short nails](https://nails.allwomenstalk.com/dynamic-looks-for-short-nails/)
+- [pedi colour](https://nails.allwomenstalk.com/magnificent-mani-pedi-color-pairings-to-make-you-smile/)
+- [color riche le stylo smoky glistening garnet](https://nails.allwomenstalk.com/eclectic-nail-trends-to-try-this-summer/)
 - [7 Best YouTube Make-up Tutorials ...](https://allwomenstalk.com/7-best-youtube-make-up-tutorials/)
 - [7 Best Blogs on Nail Art ...](https://allwomenstalk.com/best-blogs-on-nail-art/)
 

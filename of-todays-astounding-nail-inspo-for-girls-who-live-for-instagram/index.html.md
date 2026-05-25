@@ -47,15 +47,15 @@ Aren't these gorgeous? Tell us which ones you liked best! And if your fav nail a
 ## Related Posts
 
 - [micah gianneli height](https://fashion.allwomenstalk.com/of-todays-heavenly-ootd-photos-for-girls-who-want-to-rock-the-ootd/)
-- [nail inspi](https://nails.allwomenstalk.com/of-todays-reliable-nail-inspo-every-woman-needs-right-now/)
 - [cat girl eclair factory](https://food.allwomenstalk.com/recipe-tutorials-on-instagram/)
-- [pink and white nails inspo](https://nails.allwomenstalk.com/of-todays-crave-worthy-nail-inspo-for-girls-desperate-for-a-new-look/)
-- [vacation inspo](https://travel.allwomenstalk.com/of-todays-glamorous-travel-inspo-for-girls-who-need-a-break-from-the-real-world/)
+- [cute hair inspo](https://hair.allwomenstalk.com/of-todays-dreamy-hair-inspo-to-wow-everyone/)
+- [nail inspi](https://nails.allwomenstalk.com/of-todays-reliable-nail-inspo-every-woman-needs-right-now/)
 - [flower inspo](https://gardening.allwomenstalk.com/best-flower-accounts-on-instagram-3/)
+- [inspo hairstyles](https://hair.allwomenstalk.com/of-todays-swoon-worthy-hair-inspo-for-girls-who-want-to-make-a-statement/)
+- [vacation inspo](https://travel.allwomenstalk.com/of-todays-glamorous-travel-inspo-for-girls-who-need-a-break-from-the-real-world/)
 - [ootd inspiration](https://fashion.allwomenstalk.com/of-todays-swoon-worthy-ootd-inspo-for-girls-who-love-the-best/)
 - [flower inspi](https://gardening.allwomenstalk.com/best-flower-accounts-to-follow-on-instagram/)
-- [inspo hairstyles](https://hair.allwomenstalk.com/of-todays-swoon-worthy-hair-inspo-for-girls-who-want-to-make-a-statement/)
-- [cute hair inspo](https://hair.allwomenstalk.com/of-todays-dreamy-hair-inspo-to-wow-everyone/)
+- [pink and white nails inspo](https://nails.allwomenstalk.com/of-todays-crave-worthy-nail-inspo-for-girls-desperate-for-a-new-look/)
 - [20 of Todays Astonishing Nail Inspo for Women Who ...](https://nails.allwomenstalk.com/of-todays-astonishing-nail-inspo-for-women-who-just-love-nails/)
 - [21 of Todays Top Nail Inspo for Girls in Need of a...](https://nails.allwomenstalk.com/of-todays-top-nail-inspo-for-girls-in-need-of-a-serious-inspo/)
 

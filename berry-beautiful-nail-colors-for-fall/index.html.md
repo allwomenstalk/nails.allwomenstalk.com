@@ -141,16 +141,16 @@ Price: $8.00 at [sephora.com](http://www.sephora.com?ref=allwomenstalk.com)
 
 ## Related Posts
 
+- [war nails](https://nails.allwomenstalk.com/awaken-the-force-with-star-wars-nail-art/)
+- [sushi nail art](https://nails.allwomenstalk.com/celebrity-nail-art-you-should-try-to-copy/)
 - [dog with acrylic nails meme](https://nails.allwomenstalk.com/you-wont-believe-these-nails-inspired-by-popular-memes/)
-- [stained glass nail designs](https://nails.allwomenstalk.com/see-why-shattered-glass-nails-are-the-next-big-trend/)
-- [feathers nails](https://nails.allwomenstalk.com/the-fiercest-feather-nail-art-youll-ever-see/)
-- [paris color stylo glistening](https://nails.allwomenstalk.com/iridescent-nail-inspiration-to-make-yourself-shimmer/)
-- [candy cane nail designs](https://nails.allwomenstalk.com/dont-go-through-winter-without-trying-snow-nail-art/)
 - [dior 209 mirror](https://nails.allwomenstalk.com/metallic-polishes-thatll-draw-attention-to-your-nails/)
 - [chanel solar nail polish](https://nails.allwomenstalk.com/glitter-polishes-that-will-perfectly-match-any-holiday-outfit/)
-- [war nails](https://nails.allwomenstalk.com/awaken-the-force-with-star-wars-nail-art/)
+- [candy cane nail designs](https://nails.allwomenstalk.com/dont-go-through-winter-without-trying-snow-nail-art/)
 - [red thanksgiving nails](https://nails.allwomenstalk.com/thanksgiving-nail-art-your-family-will-find-adorable/)
-- [sushi nail art](https://nails.allwomenstalk.com/celebrity-nail-art-you-should-try-to-copy/)
+- [stained glass nail designs](https://nails.allwomenstalk.com/see-why-shattered-glass-nails-are-the-next-big-trend/)
+- [paris color stylo glistening](https://nails.allwomenstalk.com/iridescent-nail-inspiration-to-make-yourself-shimmer/)
+- [feathers nails](https://nails.allwomenstalk.com/the-fiercest-feather-nail-art-youll-ever-see/)
 - [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
 - [7 Gorgeous Nail Polishes for Fall ...](https://allwomenstalk.com/7-gorgeous-nail-polishes-for-fall/)
 

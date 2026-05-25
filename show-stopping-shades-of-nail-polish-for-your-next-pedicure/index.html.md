@@ -68,16 +68,16 @@ Whether you try out these exact shades of nail polish or low-cost dupes, I think
 
 ## Related Posts
 
-- [color riche le stylo smoky glistening garnet](https://nails.allwomenstalk.com/eclectic-nail-trends-to-try-this-summer/)
-- [pedi colour](https://nails.allwomenstalk.com/magnificent-mani-pedi-color-pairings-to-make-you-smile/)
-- [buntys jewelers](https://nails.allwomenstalk.com/top-nail-trends-for-fall/)
-- [pinterest halloween gifts](https://nails.allwomenstalk.com/spooky-halloween-nail-ideas-from-pinterest-to-try/)
-- [freddy krueger nails](https://nails.allwomenstalk.com/halloween-nail-art-tutorials-you-will-love/)
 - [popular nail colors this fall](https://nails.allwomenstalk.com/crazy-awesome-nail-polish-colors-for-fall/)
-- [Mani Mania: Best Nude Polishes for Fall ...](https://nails.allwomenstalk.com/mani-mania-best-nude-polishes-for-fall/)
-- [diy nails designs](https://nails.allwomenstalk.com/wicked-diy-nail-designs-for-the-back-to-school-season/)
-- [gucci red nail polish](https://nails.allwomenstalk.com/mani-mania-heres-guccis-fall-nail-polish-line/)
 - [pure ice nail polish](https://nails.allwomenstalk.com/fall-for-new-pure-ice-fall-nail-colors/)
+- [pinterest halloween gifts](https://nails.allwomenstalk.com/spooky-halloween-nail-ideas-from-pinterest-to-try/)
+- [pedi colour](https://nails.allwomenstalk.com/magnificent-mani-pedi-color-pairings-to-make-you-smile/)
+- [Mani Mania: Best Nude Polishes for Fall ...](https://nails.allwomenstalk.com/mani-mania-best-nude-polishes-for-fall/)
+- [buntys jewelers](https://nails.allwomenstalk.com/top-nail-trends-for-fall/)
+- [diy nails designs](https://nails.allwomenstalk.com/wicked-diy-nail-designs-for-the-back-to-school-season/)
+- [color riche le stylo smoky glistening garnet](https://nails.allwomenstalk.com/eclectic-nail-trends-to-try-this-summer/)
+- [freddy krueger nails](https://nails.allwomenstalk.com/halloween-nail-art-tutorials-you-will-love/)
+- [gucci red nail polish](https://nails.allwomenstalk.com/mani-mania-heres-guccis-fall-nail-polish-line/)
 - [8 Tips for Choosing the Right Nail Polish ...](https://makeup.allwomenstalk.com/8-tips-for-choosing-the-right-nail-polish/)
 - [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
 

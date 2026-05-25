@@ -50,16 +50,16 @@ I love checking out different YouTube nail tutorials because of the wide range o
 
 ## Related Posts
 
-- [unique toe rings](https://jewelry.allwomenstalk.com/playful-toe-rings-that-will-perfect-your-pedicure/)
+- [edgy rock nails](https://nails.allwomenstalk.com/edgy-manicures-to-rock-on-your-first-date/)
+- [zooey dechanel engagement ring](https://nails.allwomenstalk.com/electric-zooey-deschanel-inspired-nail-designs/)
 - [nail ideas for 10 year olds](https://nails.allwomenstalk.com/intricate-nail-designs-to-rock-at-school/)
+- [unique toe rings](https://jewelry.allwomenstalk.com/playful-toe-rings-that-will-perfect-your-pedicure/)
+- [what is the best top coat for acrylic nails](https://nails.allwomenstalk.com/best-top-coats-to-top-off-your-marvelous-mani/)
+- [trendy nail colours](https://nails.allwomenstalk.com/trendy-nail-polish-colors-you-absolutely-must-try-now/)
+- [greyish purple nails](https://nails.allwomenstalk.com/nail-color-combinations-that-look-divine/)
+- [blue nails with black designs](https://nails.allwomenstalk.com/gorgeous-blue-nail-designs-to-sport-this-season/)
 - [fresh nail designs](https://nails.allwomenstalk.com/fresh-nail-tutorials-for-easter/)
 - [spring inspired nails](https://nails.allwomenstalk.com/fresh-spring-inspired-nail-tutorials/)
-- [edgy rock nails](https://nails.allwomenstalk.com/edgy-manicures-to-rock-on-your-first-date/)
-- [greyish purple nails](https://nails.allwomenstalk.com/nail-color-combinations-that-look-divine/)
-- [zooey dechanel engagement ring](https://nails.allwomenstalk.com/electric-zooey-deschanel-inspired-nail-designs/)
-- [trendy nail colours](https://nails.allwomenstalk.com/trendy-nail-polish-colors-you-absolutely-must-try-now/)
-- [blue nails with black designs](https://nails.allwomenstalk.com/gorgeous-blue-nail-designs-to-sport-this-season/)
-- [what is the best top coat for acrylic nails](https://nails.allwomenstalk.com/best-top-coats-to-top-off-your-marvelous-mani/)
 - [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
 - [7 Little Known Tips for a Perfect Manicure ...](https://allwomenstalk.com/7-little-known-tips-for-a-perfect-manicure/)
 

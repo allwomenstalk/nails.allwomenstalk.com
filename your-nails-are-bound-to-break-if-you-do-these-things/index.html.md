@@ -43,15 +43,15 @@ What do you do when your nails break? What causes them to break?
 ## Related Posts
 
 - [easy at home french manicure](https://nails.allwomenstalk.com/how-to-create-the-perfect-french-manicure/)
-- [easy toothpick nail art](https://nails.allwomenstalk.com/nail-art-hacks-youll-be-glad-to-know/)
-- [how to stop a nail from splitting](https://nails.allwomenstalk.com/steps-to-stop-your-nails-from-splitting/)
-- [natural white nail](https://nails.allwomenstalk.com/whimsical-tips-for-white-nails/)
-- [spiky fingernails](https://nails.allwomenstalk.com/signs-its-time-to-cut-your-nails-short/)
-- [how to make nails pretty](https://nails.allwomenstalk.com/ways-to-pamper-your-nails-in-between-manicures/)
-- [what type of fake nails are the strongest](https://nails.allwomenstalk.com/which-type-of-false-nails-are-right-for-you/)
 - [best products to strengthen nails](https://nails.allwomenstalk.com/the-secrets-to-strengthening-your-nails/)
-- [does gel polish go bad](https://nails.allwomenstalk.com/most-women-dont-know-these-nail-polish-facts/)
+- [easy toothpick nail art](https://nails.allwomenstalk.com/nail-art-hacks-youll-be-glad-to-know/)
 - [difficult nail art](https://nails.allwomenstalk.com/how-to-get-the-perfect-instagram-nail-shot/)
+- [spiky fingernails](https://nails.allwomenstalk.com/signs-its-time-to-cut-your-nails-short/)
+- [how to stop a nail from splitting](https://nails.allwomenstalk.com/steps-to-stop-your-nails-from-splitting/)
+- [what type of fake nails are the strongest](https://nails.allwomenstalk.com/which-type-of-false-nails-are-right-for-you/)
+- [does gel polish go bad](https://nails.allwomenstalk.com/most-women-dont-know-these-nail-polish-facts/)
+- [how to make nails pretty](https://nails.allwomenstalk.com/ways-to-pamper-your-nails-in-between-manicures/)
+- [natural white nail](https://nails.allwomenstalk.com/whimsical-tips-for-white-nails/)
 - [Manicure ...](https://allwomenstalk.com/manicure/)
 - [10 Important Things You Should Know about Your Nai...](https://nails.allwomenstalk.com/things-you-should-know-about-your-nails/)
 

@@ -132,16 +132,16 @@ Which one is your absolute favorite? How do you plan to spend your St. Patrick's
 
 ## Related Posts
 
-- [fall matte nails](https://nails.allwomenstalk.com/matte-nail-art-inspiration-thatll-make-you-look-elegant/)
-- [long lasting drugstore nail polish](https://nails.allwomenstalk.com/which-long-lasting-nail-polish-brands-actually-work/)
-- [spring bling nail designs](https://nails.allwomenstalk.com/pieces-of-springtime-nail-art-inspiration/)
 - [nail art birds](https://nails.allwomenstalk.com/nail-infographics-thatll-make-you-look-pretty-as-a-picture/)
-- [loreal paris riche le eye golden emerald](https://nails.allwomenstalk.com/statement-nail-colours-for/)
-- [elegant fingernail designs](https://nails.allwomenstalk.com/an-elegant-nail-design-for-the-fanciest-occasions/)
 - [nab beauty](https://nails.allwomenstalk.com/nails-colors-you-should-nab-for-spring/)
-- [nail art for work](https://nails.allwomenstalk.com/work-friendly-nail-art-that-your-coworkers-will-flip-over/)
-- [nordstrom chanel nail polish](https://nails.allwomenstalk.com/look-pretty-in-pale-polish-with-this-easter-nail-art/)
+- [long lasting drugstore nail polish](https://nails.allwomenstalk.com/which-long-lasting-nail-polish-brands-actually-work/)
+- [loreal paris riche le eye golden emerald](https://nails.allwomenstalk.com/statement-nail-colours-for/)
+- [fall matte nails](https://nails.allwomenstalk.com/matte-nail-art-inspiration-thatll-make-you-look-elegant/)
+- [spring bling nail designs](https://nails.allwomenstalk.com/pieces-of-springtime-nail-art-inspiration/)
 - [nails emoji text](https://nails.allwomenstalk.com/pieces-of-emoji-nail-art-for-phone-addicts/)
+- [nail art for work](https://nails.allwomenstalk.com/work-friendly-nail-art-that-your-coworkers-will-flip-over/)
+- [elegant fingernail designs](https://nails.allwomenstalk.com/an-elegant-nail-design-for-the-fanciest-occasions/)
+- [nordstrom chanel nail polish](https://nails.allwomenstalk.com/look-pretty-in-pale-polish-with-this-easter-nail-art/)
 - [Nail Art Tutorials for the Festive Season ...](https://nails.allwomenstalk.com/fabulously-festive-nail-art-tutorials/)
 - [New Years Eve Nail Art for Girls Who Want to Start...](https://nails.allwomenstalk.com/awesome-new-years-eve-nail-art-designs-to-help-you-ring-it-in/)
 

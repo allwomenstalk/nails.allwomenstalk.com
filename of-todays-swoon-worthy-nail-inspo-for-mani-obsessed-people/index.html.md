@@ -56,16 +56,16 @@ Aren't these gorgeous? Tell us which ones you liked best! And if your fav nail a
 
 ## Related Posts
 
-- [76 Best Best Nails ...](https://nails.allwomenstalk.com/best-best-nails/)
-- [pastel nails](https://nails.allwomenstalk.com/best-pastel-nails/)
-- [christmas nail stripes](https://nails.allwomenstalk.com/best-polished-nails/)
+- [96 Best Beauty Nails ...](https://nails.allwomenstalk.com/best-beauty-nails/)
 - [14 Flirty and Fun Nail Polishes to Sweep You Off Y...](https://nails.allwomenstalk.com/flirty-and-fun-nail-polishes-for-valentine/)
-- [long nails sharp](https://nails.allwomenstalk.com/best-long-nails/)
-- [tiffany blue nails](https://nails.allwomenstalk.com/best-blue-nails/)
 - [french tip 3.5](https://nails.allwomenstalk.com/best-exotic-nails/)
 - [lets be friends dip](https://nails.allwomenstalk.com/best-gel-nails/)
-- [96 Best Beauty Nails ...](https://nails.allwomenstalk.com/best-beauty-nails/)
+- [pastel nails](https://nails.allwomenstalk.com/best-pastel-nails/)
+- [long nails sharp](https://nails.allwomenstalk.com/best-long-nails/)
 - [90 Best Chic Nails ...](https://nails.allwomenstalk.com/best-chic-nails/)
+- [tiffany blue nails](https://nails.allwomenstalk.com/best-blue-nails/)
+- [76 Best Best Nails ...](https://nails.allwomenstalk.com/best-best-nails/)
+- [christmas nail stripes](https://nails.allwomenstalk.com/best-polished-nails/)
 - [18 of Todays Drool Worthy  Nail Inspo for Women Wh...](https://nails.allwomenstalk.com/of-todays-drool-worthy-nail-inspo-for-women-who-love-new-nail-styles/)
 - [19 of Todays Awesome Nail Inspo for Women Who Want...](https://nails.allwomenstalk.com/of-todays-awesome-nail-inspo-for-women-who-want-to-invest-in-their-look/)
 

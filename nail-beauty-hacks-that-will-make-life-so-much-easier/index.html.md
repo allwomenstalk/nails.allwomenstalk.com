@@ -56,16 +56,16 @@ I love that there are so many different tips and tricks to help you get that per
 
 ## Related Posts
 
-- [discontinue lipstick](https://beauty.allwomenstalk.com/things-you-can-do-if-your-favorite-beauty-product-is-discontinued/)
-- [organizer for girls](https://makeup.allwomenstalk.com/makeup-organizers-to-bring-order-to-your-stash/)
-- [body glitter 90s](https://beauty.allwomenstalk.com/90s-make-up-products-thatll-blow-your-mind-and-improve-your-beauty-routine/)
 - [needed makeup products](https://makeup.allwomenstalk.com/common-makeup-items-you-dont-actually-need/)
 - [shaina and kathy had a fight and havent talked for...](https://fashion.allwomenstalk.com/products-all-makeup-and-fashion-junkies-need-to-have/)
-- [best things to splurge on](https://money.allwomenstalk.com/indispensable-products-women-splurge-on-and-you-should-too/)
+- [organizer for girls](https://makeup.allwomenstalk.com/makeup-organizers-to-bring-order-to-your-stash/)
 - [loreal paris le stylo pearly](https://beauty.allwomenstalk.com/beauty-products-to-keep-at-work/)
 - [eye shadow palette face one color](https://makeup.allwomenstalk.com/eyeshadow-palettes-for-cool-skin-tones/)
-- [mascara primer drugstore](https://makeup.allwomenstalk.com/drugstore-mascaras-that-you-should-try/)
 - [thermasilk hair spray](https://beauty.allwomenstalk.com/discontinued-beauty-products-we-wish-would-come-back/)
+- [discontinue lipstick](https://beauty.allwomenstalk.com/things-you-can-do-if-your-favorite-beauty-product-is-discontinued/)
+- [body glitter 90s](https://beauty.allwomenstalk.com/90s-make-up-products-thatll-blow-your-mind-and-improve-your-beauty-routine/)
+- [best things to splurge on](https://money.allwomenstalk.com/indispensable-products-women-splurge-on-and-you-should-too/)
+- [mascara primer drugstore](https://makeup.allwomenstalk.com/drugstore-mascaras-that-you-should-try/)
 - [7 Makeup Tips for Girls ...](https://allwomenstalk.com/7-makeup-tips-for-girls/)
 - [7 Makeup Must-Haves for Teen Girls ...](https://allwomenstalk.com/7-makeup-must-haves-for-teen-girls/)
 

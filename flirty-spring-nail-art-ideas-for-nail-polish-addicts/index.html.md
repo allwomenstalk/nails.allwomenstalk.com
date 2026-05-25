@@ -267,16 +267,16 @@ I hope you got some ideas on how you'd like to rock your spring nails! Do you ha
 
 ## Related Posts
 
-- [arrow nail art](https://nails.allwomenstalk.com/hunger-games-fans-unite-of-the-coolest-nail-art-deisgns-ever/)
-- [xmas nails](https://nails.allwomenstalk.com/spread-the-luck-nail-designs-for-st-patricks-day/)
-- [easy do it yourself nail art](https://nails.allwomenstalk.com/easy-nail-art-designs-for-lazy-ladies/)
-- [red pink white nail designs](https://nails.allwomenstalk.com/here-are-the-coolest-polka-dot-nail-art-patterns-in-the-world/)
-- [lilac short nail designs](https://nails.allwomenstalk.com/got-short-nails-here-are-the-nail-art-designs-youll-love/)
-- [summer easy nail art](https://nails.allwomenstalk.com/summer-gets-even-hotter-with-these-nail-art-ideas/)
-- [dragon ball nail art](https://nails.allwomenstalk.com/the-best-dragon-nail-art-designs-in-the-whole-world/)
 - [one color nail inspo](https://nails.allwomenstalk.com/awesome-reasons-to-try-neon-nail-art/)
-- [shapes in polish](https://nails.allwomenstalk.com/make-your-polish-even-prettier-with-these-different-shapes-to-file-your-nails/)
 - [southwestern nails](https://nails.allwomenstalk.com/wait-till-you-see-these-tribal-nail-art-patterns/)
+- [arrow nail art](https://nails.allwomenstalk.com/hunger-games-fans-unite-of-the-coolest-nail-art-deisgns-ever/)
+- [lilac short nail designs](https://nails.allwomenstalk.com/got-short-nails-here-are-the-nail-art-designs-youll-love/)
+- [xmas nails](https://nails.allwomenstalk.com/spread-the-luck-nail-designs-for-st-patricks-day/)
+- [summer easy nail art](https://nails.allwomenstalk.com/summer-gets-even-hotter-with-these-nail-art-ideas/)
+- [easy do it yourself nail art](https://nails.allwomenstalk.com/easy-nail-art-designs-for-lazy-ladies/)
+- [dragon ball nail art](https://nails.allwomenstalk.com/the-best-dragon-nail-art-designs-in-the-whole-world/)
+- [red pink white nail designs](https://nails.allwomenstalk.com/here-are-the-coolest-polka-dot-nail-art-patterns-in-the-world/)
+- [shapes in polish](https://nails.allwomenstalk.com/make-your-polish-even-prettier-with-these-different-shapes-to-file-your-nails/)
 - [7 Flirty and Fun Nail Polishes for Valentines Day ...](https://nails.allwomenstalk.com/flirty-and-fun-nail-polishes-for-valentines-day/)
 - [21 Cute and Affordable Nail Polish Options ...](https://nails.allwomenstalk.com/cute-and-affordable-nail-polish-options/)
 

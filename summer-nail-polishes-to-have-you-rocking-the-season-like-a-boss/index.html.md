@@ -132,16 +132,16 @@ RGB Cosmetics Nail Color in Cameo, $9; [rgbcosmetics.com](https://goo.gl/2BQ1Gw)
 
 ## Related Posts
 
-- [nail spring colors](https://nails.allwomenstalk.com/nail-colors-for-spring/)
-- [nightmare before christmas toenails](https://nails.allwomenstalk.com/halloween-nail-art-tutorials/)
 - [nail inspos](https://nails.allwomenstalk.com/best-matte-manicure-inspiration/)
-- [hottest nail trends](https://nails.allwomenstalk.com/the-hottest-nail-trends-for-summer/)
-- [nail story ii](https://nails.allwomenstalk.com/story-of-my-nails/)
 - [matching red lipstick and nail polish](https://fashion.allwomenstalk.com/genius-outfit-boards-for-women-rocking-red-lipstick-and-red-nails/)
-- [best glitter nail polishes](https://nails.allwomenstalk.com/best-nail-polishes-for-new-years-eve/)
-- [french nail stickers](https://nails.allwomenstalk.com/of-the-coolest-nail-stickers-you-can-find-on-amazon-for-an-epic-manicure/)
 - [why do females paint their ring finger a different...](https://nails.allwomenstalk.com/why-women-paint-their-nails/)
+- [nail story ii](https://nails.allwomenstalk.com/story-of-my-nails/)
+- [nightmare before christmas toenails](https://nails.allwomenstalk.com/halloween-nail-art-tutorials/)
+- [nail spring colors](https://nails.allwomenstalk.com/nail-colors-for-spring/)
+- [hottest nail trends](https://nails.allwomenstalk.com/the-hottest-nail-trends-for-summer/)
+- [french nail stickers](https://nails.allwomenstalk.com/of-the-coolest-nail-stickers-you-can-find-on-amazon-for-an-epic-manicure/)
 - [rocking nails](https://nails.allwomenstalk.com/quartz-nails-that-are-totally-rocking-the-internet-right-now/)
+- [best glitter nail polishes](https://nails.allwomenstalk.com/best-nail-polishes-for-new-years-eve/)
 - [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
 - [8 Sexiest Nail Polish ...](https://allwomenstalk.com/8-sexiest-nail-polish/)
 

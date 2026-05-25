@@ -42,16 +42,16 @@ If it's sassy or quirky, you can certainly count me in; I love rocking nail art 
 
 ## Related Posts
 
-- [opi pops](https://makeup.allwomenstalk.com/opi-shades-to-make-your-nails-pop/)
-- [i love me nails](https://nails.allwomenstalk.com/quirky-nail-designs-you-will-love/)
-- [pink nail polish color names](https://nails.allwomenstalk.com/gorgeous-nail-polish-colors-with-ridiculous-names/)
-- [trendy nail designs for short nails](https://nails.allwomenstalk.com/trendy-nail-designs-for-short-nails/)
-- [cheapest nail polish brands](https://nails.allwomenstalk.com/bargain-nail-polish-brands-to-try-out/)
-- [turquoise and blue nails](https://nails.allwomenstalk.com/turquoise-nail-polishes-to-shake-up-your-look/)
-- [color riche smoky neon skirt](https://nails.allwomenstalk.com/new-essie-colors-you-must-try/)
-- [china glaze polish colors](https://nails.allwomenstalk.com/awesome-china-glazes-nail-polishes-you-should-get-if-you-can-find-them/)
 - [adore gel polish](https://nails.allwomenstalk.com/dazzling-manicures-youll-absolutely-adore/)
+- [trendy nail designs for short nails](https://nails.allwomenstalk.com/trendy-nail-designs-for-short-nails/)
+- [china glaze polish colors](https://nails.allwomenstalk.com/awesome-china-glazes-nail-polishes-you-should-get-if-you-can-find-them/)
+- [i love me nails](https://nails.allwomenstalk.com/quirky-nail-designs-you-will-love/)
+- [color riche smoky neon skirt](https://nails.allwomenstalk.com/new-essie-colors-you-must-try/)
+- [pink nail polish color names](https://nails.allwomenstalk.com/gorgeous-nail-polish-colors-with-ridiculous-names/)
 - [stylish manicure](https://nails.allwomenstalk.com/stylish-nail-tutorials-to-celebrate-your-anniversary/)
+- [turquoise and blue nails](https://nails.allwomenstalk.com/turquoise-nail-polishes-to-shake-up-your-look/)
+- [cheapest nail polish brands](https://nails.allwomenstalk.com/bargain-nail-polish-brands-to-try-out/)
+- [opi pops](https://makeup.allwomenstalk.com/opi-shades-to-make-your-nails-pop/)
 - [7 Hottest Nail Trends for Fall ...](https://beauty.allwomenstalk.com/hottest-nail-trends-for-fall/)
 - [7 Most Fashionable Nail Polishes of Today ...](https://allwomenstalk.com/7-most-fashionable-nail-polishes-of-today/)
 

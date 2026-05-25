@@ -52,16 +52,16 @@ My Instagram is [@hollyyrio](https://www.facebook.com/unsupportedbrowser). What'
 
 ## Related Posts
 
-- [manicure tools](https://nails.allwomenstalk.com/dont-give-yourself-a-manicure-without-these-tools/)
-- [keep nails strong](https://nails.allwomenstalk.com/easy-ways-to-keep-your-nails-healthy/)
-- [dip nail shape](https://nails.allwomenstalk.com/what-does-your-nail-shape-say-about-you/)
-- [ingredients nail polish](https://nails.allwomenstalk.com/you-never-want-these-ingredients-in-your-nail-polish/)
-- [how to take off glitter nail polish](https://nails.allwomenstalk.com/how-to-remove-pesky-glitter-polish/)
-- [dark nail cuticles](https://skincare.allwomenstalk.com/these-things-are-damaging-your-cuticles/)
-- [how to get nicer hands](https://skincare.allwomenstalk.com/steps-to-beautiful-hands-overnight/)
-- [natural white nail](https://nails.allwomenstalk.com/whimsical-tips-for-white-nails/)
-- [how to open nail polish that wont open](https://nails.allwomenstalk.com/signs-its-time-to-throw-out-your-nail-polish/)
 - [funny bunny bubble bath](https://nails.allwomenstalk.com/keep-your-cuticles-clean-with-these-nail-products/)
+- [dip nail shape](https://nails.allwomenstalk.com/what-does-your-nail-shape-say-about-you/)
+- [how to open nail polish that wont open](https://nails.allwomenstalk.com/signs-its-time-to-throw-out-your-nail-polish/)
+- [dark nail cuticles](https://skincare.allwomenstalk.com/these-things-are-damaging-your-cuticles/)
+- [natural white nail](https://nails.allwomenstalk.com/whimsical-tips-for-white-nails/)
+- [how to take off glitter nail polish](https://nails.allwomenstalk.com/how-to-remove-pesky-glitter-polish/)
+- [how to get nicer hands](https://skincare.allwomenstalk.com/steps-to-beautiful-hands-overnight/)
+- [keep nails strong](https://nails.allwomenstalk.com/easy-ways-to-keep-your-nails-healthy/)
+- [manicure tools](https://nails.allwomenstalk.com/dont-give-yourself-a-manicure-without-these-tools/)
+- [ingredients nail polish](https://nails.allwomenstalk.com/you-never-want-these-ingredients-in-your-nail-polish/)
 - [8 Beauty Hacks for Knockout Nails ...](https://nails.allwomenstalk.com/beauty-hacks-for-knockout-nails/)
 - [The Best Instagram Accounts to Follow for Some Ser...](https://nails.allwomenstalk.com/the-best-instagram-accounts-to-follow-for-some-serious-nail-art-inspo/)
 

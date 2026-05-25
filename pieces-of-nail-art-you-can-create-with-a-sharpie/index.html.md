@@ -42,16 +42,16 @@ If you follow the advice in this tutorial, then you'll have nails everyone will 
 
 ## Related Posts
 
-- [coral ombre nails](https://nails.allwomenstalk.com/ombre-nail-tutorials-thatll-teach-you-how-to-look-your-best/)
-- [basketball toenails](https://nails.allwomenstalk.com/basketball-nails-thatll-get-you-pumped-for-march-madness/)
-- [green themed nails](https://nails.allwomenstalk.com/this-st-paddys-nail-art-will-make-others-green-with-envy/)
-- [nab beauty](https://nails.allwomenstalk.com/nails-colors-you-should-nab-for-spring/)
-- [loreal paris la maximalist eyeshadow skirt](https://nails.allwomenstalk.com/furry-nails-are-a-bizarre-new-nail-trend/)
-- [green bay packers nail designs](https://nails.allwomenstalk.com/show-your-team-spirit-with-this-super-bowl-nail-art/)
 - [nail style names](https://nails.allwomenstalk.com/check-out-this-valentines-day-nail-art-inspiration/)
-- [nail art birds](https://nails.allwomenstalk.com/nail-infographics-thatll-make-you-look-pretty-as-a-picture/)
-- [3 dimensional nail art](https://nails.allwomenstalk.com/3-d-nail-art-all-of-your-friends-will-flip-over/)
 - [minimalist disney nails](https://nails.allwomenstalk.com/amazing-pieces-of-minimalist-nail-art/)
+- [basketball toenails](https://nails.allwomenstalk.com/basketball-nails-thatll-get-you-pumped-for-march-madness/)
+- [coral ombre nails](https://nails.allwomenstalk.com/ombre-nail-tutorials-thatll-teach-you-how-to-look-your-best/)
+- [green bay packers nail designs](https://nails.allwomenstalk.com/show-your-team-spirit-with-this-super-bowl-nail-art/)
+- [nail art birds](https://nails.allwomenstalk.com/nail-infographics-thatll-make-you-look-pretty-as-a-picture/)
+- [green themed nails](https://nails.allwomenstalk.com/this-st-paddys-nail-art-will-make-others-green-with-envy/)
+- [loreal paris la maximalist eyeshadow skirt](https://nails.allwomenstalk.com/furry-nails-are-a-bizarre-new-nail-trend/)
+- [nab beauty](https://nails.allwomenstalk.com/nails-colors-you-should-nab-for-spring/)
+- [3 dimensional nail art](https://nails.allwomenstalk.com/3-d-nail-art-all-of-your-friends-will-flip-over/)
 - [7 Best Blogs on Nail Art ...](https://allwomenstalk.com/best-blogs-on-nail-art/)
 - [7 Superb Tips on Doing Nail Art for Clumsy Hands ....](https://nails.allwomenstalk.com/superb-tips-on-doing-nail-art-for-clumsy-hands/)
 

@@ -96,16 +96,16 @@ This article was written in collaboration with editor Lydia Sheehan.
 
 ## Related Posts
 
-- [how make nail polish last longer](https://nails.allwomenstalk.com/tips-on-how-to-make-nail-polish-stay-on-longer-2/)
-- [how to get nail polish to dry quick](https://nails.allwomenstalk.com/helpful-tips-on-how-to-make-your-nails-dry-faster/)
-- [superdrug nail strengthener](https://nails.allwomenstalk.com/nail-treatment-products-you-must-try-for-nail-and-nail-polish-problems/)
-- [what are my fingernails made of](https://nails.allwomenstalk.com/things-you-should-know-about-your-nails/)
-- [tricks to stop biting your nails](https://nails.allwomenstalk.com/tips-on-how-to-stop-biting-your-nails/)
-- [finger nail nubs](https://nails.allwomenstalk.com/tips-to-stop-biting-your-nails-before-your-fingers-look-like-nubs/)
 - [how to hold yourself up with your hands](https://nails.allwomenstalk.com/ways-to-pamper-your-hands-and-improve-its-condition/)
+- [finger nail nubs](https://nails.allwomenstalk.com/tips-to-stop-biting-your-nails-before-your-fingers-look-like-nubs/)
+- [tricks to stop biting your nails](https://nails.allwomenstalk.com/tips-on-how-to-stop-biting-your-nails/)
+- [what are my fingernails made of](https://nails.allwomenstalk.com/things-you-should-know-about-your-nails/)
+- [superdrug nail strengthener](https://nails.allwomenstalk.com/nail-treatment-products-you-must-try-for-nail-and-nail-polish-problems/)
 - [fingernails half white half pink](https://nails.allwomenstalk.com/home-remedies-for-brittle-nails/)
-- [brittle fingernails](https://nails.allwomenstalk.com/helpful-ways-you-can-strengthen-dry-and-brittle-nails/)
+- [how make nail polish last longer](https://nails.allwomenstalk.com/tips-on-how-to-make-nail-polish-stay-on-longer-2/)
 - [what food makes nails grow](https://food.allwomenstalk.com/superfoods-to-help-your-nails-grow/)
+- [brittle fingernails](https://nails.allwomenstalk.com/helpful-ways-you-can-strengthen-dry-and-brittle-nails/)
+- [how to get nail polish to dry quick](https://nails.allwomenstalk.com/helpful-tips-on-how-to-make-your-nails-dry-faster/)
 - [8 Tips for Choosing the Right Nail Polish ...](https://makeup.allwomenstalk.com/8-tips-for-choosing-the-right-nail-polish/)
 - [8 Tips for Choosing Perfect Hair Color ...](https://hair.allwomenstalk.com/tips-for-choosing-perfect-hair-color/)
 

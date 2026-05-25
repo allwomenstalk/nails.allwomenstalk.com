@@ -189,16 +189,16 @@ Did you grow up in the 80s? Do these bring back memories? Which one is your favo
 
 ## Related Posts
 
-- [nail.design ideas 2023](https://nails.allwomenstalk.com/really-cool-sponged-nail-art-ideas-to-rock-your-world/)
-- [rainbow nail design](https://nails.allwomenstalk.com/rainbow-nail-art-to-make-you-smile/)
+- [homemade nail polish](https://nails.allwomenstalk.com/nail-polish-hacks-you-really-need-to-know/)
+- [nail ve](https://nails.allwomenstalk.com/these-are-the-most-perfect-back-to-school-nail-art-designs-youve-ever-seen/)
 - [can you change the color of ombre nails](https://nails.allwomenstalk.com/ombre-nails-that-will-blow-your-mind/)
 - [3d summer nails](https://nails.allwomenstalk.com/dazzling-3d-nail-art-designs-you-wont-be-able-to-take-your-eyes-off-of/)
-- [homemade nail polish](https://nails.allwomenstalk.com/nail-polish-hacks-you-really-need-to-know/)
-- [summer nail](https://nails.allwomenstalk.com/white-hot-nails-for-summertime/)
-- [green plaid christmas nails](https://nails.allwomenstalk.com/awesome-plaid-nail-art-designs-for-your-preppy-days/)
-- [nail ve](https://nails.allwomenstalk.com/these-are-the-most-perfect-back-to-school-nail-art-designs-youve-ever-seen/)
 - [uas de fall](https://nails.allwomenstalk.com/get-your-autumn-on-with-this-fall-inspired-nail-art/)
+- [green plaid christmas nails](https://nails.allwomenstalk.com/awesome-plaid-nail-art-designs-for-your-preppy-days/)
 - [harry potter nail art simple](https://nails.allwomenstalk.com/harry-potter-nail-art-patterns-for-the-biggest-fans/)
+- [rainbow nail design](https://nails.allwomenstalk.com/rainbow-nail-art-to-make-you-smile/)
+- [summer nail](https://nails.allwomenstalk.com/white-hot-nails-for-summertime/)
+- [nail.design ideas 2023](https://nails.allwomenstalk.com/really-cool-sponged-nail-art-ideas-to-rock-your-world/)
 - [9 Awesome Nail Art Trends ...](https://makeup.allwomenstalk.com/awesome-nail-art-trends/)
 - [9 Examples of Pop-Culture Nail Art ...](https://makeup.allwomenstalk.com/examples-of-pop-culture-nail-art/)
 

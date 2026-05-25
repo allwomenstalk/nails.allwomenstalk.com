@@ -42,16 +42,16 @@ Well, that’s all for now, lovelies! But if you know of a fun nail polish fact,
 
 ## Related Posts
 
-- [glitter french tip pedicure](https://nails.allwomenstalk.com/tempting-french-manicure-variations-to-try-today/)
-- [nail polish double colour](https://nails.allwomenstalk.com/pretty-nail-polish-color-combinations-to-try/)
 - [loreal paris le stylo infinite sky](https://nails.allwomenstalk.com/of-the-prettiest-nail-colors-by-essie/)
+- [sephora nail decals](https://nails.allwomenstalk.com/nail-stickers-for-a-fun-and-flirty-manicure/)
+- [unique toe rings](https://jewelry.allwomenstalk.com/playful-toe-rings-that-will-perfect-your-pedicure/)
+- [nail polish double colour](https://nails.allwomenstalk.com/pretty-nail-polish-color-combinations-to-try/)
+- [manicure tutorials](https://nails.allwomenstalk.com/stylish-youtube-manicure-tutorials-to-watch-for-date-night/)
+- [no design nails](https://nails.allwomenstalk.com/easy-nail-designs-and-art-for-amateurs/)
 - [gothic red nails](https://nails.allwomenstalk.com/fierce-red-manicures-you-need-to-try/)
 - [nail ideas for 10 year olds](https://nails.allwomenstalk.com/intricate-nail-designs-to-rock-at-school/)
-- [unique toe rings](https://jewelry.allwomenstalk.com/playful-toe-rings-that-will-perfect-your-pedicure/)
-- [sephora nail decals](https://nails.allwomenstalk.com/nail-stickers-for-a-fun-and-flirty-manicure/)
-- [no design nails](https://nails.allwomenstalk.com/easy-nail-designs-and-art-for-amateurs/)
+- [glitter french tip pedicure](https://nails.allwomenstalk.com/tempting-french-manicure-variations-to-try-today/)
 - [glitter pink nail designs](https://nails.allwomenstalk.com/pretty-pink-nail-designs-you-will-fawn-over/)
-- [manicure tutorials](https://nails.allwomenstalk.com/stylish-youtube-manicure-tutorials-to-watch-for-date-night/)
 - [8 Tips for Choosing the Right Nail Polish ...](https://makeup.allwomenstalk.com/8-tips-for-choosing-the-right-nail-polish/)
 - [7 Most Fashionable Nail Polishes of Today ...](https://allwomenstalk.com/7-most-fashionable-nail-polishes-of-today/)
 

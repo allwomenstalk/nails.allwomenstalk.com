@@ -42,16 +42,16 @@ Will you be adding nails to your New Year’s Resolution for 2014? This next yea
 
 ## Related Posts
 
-- [monie love feet](https://nails.allwomenstalk.com/tips-for-banishing-ingrown-toenails-once-and-for-all/)
-- [how many coats of nail polish should i do](https://nails.allwomenstalk.com/tips-on-how-to-make-nail-polish-stay-on-longer-3/)
-- [what makes nails grow](https://nails.allwomenstalk.com/reasons-why-your-nails-arent-growing-properly/)
-- [what can you use for nail polish remover](https://diy.allwomenstalk.com/alternative-uses-for-nail-polish-remover/)
-- [how to paint artificial nails](https://nails.allwomenstalk.com/tips-for-painting-your-nails-that-will-change-your-life/)
 - [manicure steps with pictures](https://nails.allwomenstalk.com/simple-steps-for-a-manicure-that-is-flawless/)
-- [good nail care can prevent](https://nails.allwomenstalk.com/nagging-nail-care-issues-solved/)
-- [nailtiques formula 1 vs 2](https://nails.allwomenstalk.com/nail-strengthening-products-youll-write-home-about/)
-- [salon manicure at home](https://nails.allwomenstalk.com/quick-tips-for-the-perfect-at-home-manicure/)
 - [nail tips gel](https://nails.allwomenstalk.com/tips-for-maintaining-your-gel-nails/)
+- [what makes nails grow](https://nails.allwomenstalk.com/reasons-why-your-nails-arent-growing-properly/)
+- [how many coats of nail polish should i do](https://nails.allwomenstalk.com/tips-on-how-to-make-nail-polish-stay-on-longer-3/)
+- [nailtiques formula 1 vs 2](https://nails.allwomenstalk.com/nail-strengthening-products-youll-write-home-about/)
+- [good nail care can prevent](https://nails.allwomenstalk.com/nagging-nail-care-issues-solved/)
+- [salon manicure at home](https://nails.allwomenstalk.com/quick-tips-for-the-perfect-at-home-manicure/)
+- [what can you use for nail polish remover](https://diy.allwomenstalk.com/alternative-uses-for-nail-polish-remover/)
+- [monie love feet](https://nails.allwomenstalk.com/tips-for-banishing-ingrown-toenails-once-and-for-all/)
+- [how to paint artificial nails](https://nails.allwomenstalk.com/tips-for-painting-your-nails-that-will-change-your-life/)
 - [7 Tips for Achieving the Perfect at-Home French Ma...](https://beauty.allwomenstalk.com/tips-for-achieving-the-perfect-at-home-french-manicure/)
 - [11 Steps for a Perfect Home Made Manicure ...](https://allwomenstalk.com/manicure-tips/)
 

@@ -46,16 +46,16 @@ Nail care is a primary part of my beauty routine. It’s such a shame to see the
 
 ## Related Posts
 
-- [winter nail care tips](https://nails.allwomenstalk.com/essential-winter-nail-care-tips-to-know/)
-- [how many coats of nail polish should i do](https://nails.allwomenstalk.com/tips-on-how-to-make-nail-polish-stay-on-longer-3/)
 - [finger nail nubs](https://nails.allwomenstalk.com/tips-to-stop-biting-your-nails-before-your-fingers-look-like-nubs/)
-- [monie love feet](https://nails.allwomenstalk.com/tips-for-banishing-ingrown-toenails-once-and-for-all/)
 - [nailtiques formula 1 vs 2](https://nails.allwomenstalk.com/nail-strengthening-products-youll-write-home-about/)
-- [how to hold yourself up with your hands](https://nails.allwomenstalk.com/ways-to-pamper-your-hands-and-improve-its-condition/)
 - [superdrug nail strengthener](https://nails.allwomenstalk.com/nail-treatment-products-you-must-try-for-nail-and-nail-polish-problems/)
-- [how to increase nail strength](https://food.allwomenstalk.com/foods-that-strengthen-your-nails-and-how-to-add-them-to-your-diet/)
+- [winter nail care tips](https://nails.allwomenstalk.com/essential-winter-nail-care-tips-to-know/)
 - [tricks to stop biting your nails](https://nails.allwomenstalk.com/tips-on-how-to-stop-biting-your-nails/)
+- [how to increase nail strength](https://food.allwomenstalk.com/foods-that-strengthen-your-nails-and-how-to-add-them-to-your-diet/)
 - [how to take care of hands and nails at home](https://nails.allwomenstalk.com/care-tips-for-perfectly-groomed-hands-and-nails/)
+- [how to hold yourself up with your hands](https://nails.allwomenstalk.com/ways-to-pamper-your-hands-and-improve-its-condition/)
+- [how many coats of nail polish should i do](https://nails.allwomenstalk.com/tips-on-how-to-make-nail-polish-stay-on-longer-3/)
+- [monie love feet](https://nails.allwomenstalk.com/tips-for-banishing-ingrown-toenails-once-and-for-all/)
 - [8 Neat Ways to Decorate Your Nails ...](https://makeup.allwomenstalk.com/8-neat-ways-to-decorate-your-nails/)
 - [8 Tips for Choosing the Right Nail Polish ...](https://makeup.allwomenstalk.com/8-tips-for-choosing-the-right-nail-polish/)
 

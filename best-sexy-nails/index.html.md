@@ -250,16 +250,16 @@ LADIES WORLD OF CLASS shared some adorable nail art on Instagram that's freaking
 
 ## Related Posts
 
-- [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
-- [how to decorate your nails](https://makeup.allwomenstalk.com/8-neat-ways-to-decorate-your-nails/)
-- [opi pink to envy reviews](https://allwomenstalk.com/review-opi-nail-envy/)
-- [hottest nail trends](https://beauty.allwomenstalk.com/hottest-nail-trends-for-fall/)
-- [French Manicure](https://allwomenstalk.com/french-manicure/)
-- [instant manicure](https://allwomenstalk.com/avons-instant-manicure/)
-- [bare minerals nail polish](https://allwomenstalk.com/bare-escentuals-introduces-mineral-nail-polish-nail-tech-secrets/)
-- [bright nail colours](https://makeup.allwomenstalk.com/acid-bright-nail-polish-colors-to-try/)
-- [8 Nail Trends for 2011 ...](https://fashion.allwomenstalk.com/nail-trends-for/)
 - [trending spring nail colors](https://makeup.allwomenstalk.com/on-trend-spring-nail-colors/)
+- [opi pink to envy reviews](https://allwomenstalk.com/review-opi-nail-envy/)
+- [French Manicure](https://allwomenstalk.com/french-manicure/)
+- [bright nail colours](https://makeup.allwomenstalk.com/acid-bright-nail-polish-colors-to-try/)
+- [hottest nail trends](https://beauty.allwomenstalk.com/hottest-nail-trends-for-fall/)
+- [how to decorate your nails](https://makeup.allwomenstalk.com/8-neat-ways-to-decorate-your-nails/)
+- [bare minerals nail polish](https://allwomenstalk.com/bare-escentuals-introduces-mineral-nail-polish-nail-tech-secrets/)
+- [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
+- [8 Nail Trends for 2011 ...](https://fashion.allwomenstalk.com/nail-trends-for/)
+- [instant manicure](https://allwomenstalk.com/avons-instant-manicure/)
 - [9 Awesome Nail Art Trends ...](https://makeup.allwomenstalk.com/awesome-nail-art-trends/)
 - [7 Amazing Nail Trends for Fall ...](https://makeup.allwomenstalk.com/amazing-nail-trends-for-fall/)
 

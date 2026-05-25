@@ -140,16 +140,16 @@ Will you do Thanksgiving nail art this year? Which design is your favorite?
 
 ## Related Posts
 
-- [chanel solar nail polish](https://nails.allwomenstalk.com/glitter-polishes-that-will-perfectly-match-any-holiday-outfit/)
 - [war nails](https://nails.allwomenstalk.com/awaken-the-force-with-star-wars-nail-art/)
-- [pearl white color nails](https://nails.allwomenstalk.com/pearl-nail-art-thatll-make-you-look-elegant-all-around/)
-- [candy cane nail designs](https://nails.allwomenstalk.com/dont-go-through-winter-without-trying-snow-nail-art/)
-- [nail trend](https://nails.allwomenstalk.com/love-or-hate-the-nail-trends-of-that-divided-opinion/)
-- [winter nail art](https://nails.allwomenstalk.com/winter-nail-art-thats-gorgeous-and-glittery/)
 - [feathers nails](https://nails.allwomenstalk.com/the-fiercest-feather-nail-art-youll-ever-see/)
-- [funky nail polish](https://nails.allwomenstalk.com/use-these-funky-colors-to-give-your-nails-some-personality/)
+- [winter nail art](https://nails.allwomenstalk.com/winter-nail-art-thats-gorgeous-and-glittery/)
+- [nail trend](https://nails.allwomenstalk.com/love-or-hate-the-nail-trends-of-that-divided-opinion/)
 - [animal with nails](https://nails.allwomenstalk.com/show-off-your-wild-side-with-these-animal-print-nails/)
+- [candy cane nail designs](https://nails.allwomenstalk.com/dont-go-through-winter-without-trying-snow-nail-art/)
+- [chanel solar nail polish](https://nails.allwomenstalk.com/glitter-polishes-that-will-perfectly-match-any-holiday-outfit/)
+- [pearl white color nails](https://nails.allwomenstalk.com/pearl-nail-art-thatll-make-you-look-elegant-all-around/)
 - [holly xmas nails](https://nails.allwomenstalk.com/apply-this-christmas-nail-art-before-your-holiday-party/)
+- [funky nail polish](https://nails.allwomenstalk.com/use-these-funky-colors-to-give-your-nails-some-personality/)
 - [7 Amazing Nail Appliqus to Try This Fall ...](https://nails.allwomenstalk.com/amazing-nail-appliques-to-try-this-fall/)
 - [7 Creative Thanksgiving Day Crafts for Kids ...](https://parenting.allwomenstalk.com/creative-thanksgiving-day-crafts-for-kids/)
 

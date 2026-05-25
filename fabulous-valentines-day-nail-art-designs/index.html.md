@@ -248,16 +248,16 @@ Do you do nail art? What's your plan for Valentine's Day this year? Please feel 
 
 ## Related Posts
 
-- [nail design black lines](https://nails.allwomenstalk.com/these-black-and-white-nail-art-patterns-will-rock-your-world/)
-- [sample of nail art designs](https://nails.allwomenstalk.com/fantastic-mardi-gras-nail-art-ideas/)
-- [nail videos](https://nails.allwomenstalk.com/up-your-style-game-with-these-nail-porn-videos/)
-- [nails white with flowers](https://nails.allwomenstalk.com/wait-til-you-see-these-awesome-flower-nail-art-designs/)
-- [neon turquoise nail polish](https://nails.allwomenstalk.com/fabulous-ways-to-wear-glitter-nail-polish/)
-- [ocean themed nail art](https://nails.allwomenstalk.com/really-cool-sea-creature-nail-art-patterns/)
 - [football nail design](https://nails.allwomenstalk.com/sports-nail-art-ideas-that-will-make-you-ready-for-game-time/)
 - [steampunk claws](https://nails.allwomenstalk.com/steampunk-nails-that-will-blow-your-mind/)
-- [neon cheetah print nails](https://nails.allwomenstalk.com/wait-until-you-see-these-adorable-ideas-for-animal-nail-art/)
 - [jelly roll nail designs](https://nails.allwomenstalk.com/food-nail-art-designs-that-will-make-you-really-hungry/)
+- [nail videos](https://nails.allwomenstalk.com/up-your-style-game-with-these-nail-porn-videos/)
+- [ocean themed nail art](https://nails.allwomenstalk.com/really-cool-sea-creature-nail-art-patterns/)
+- [nails white with flowers](https://nails.allwomenstalk.com/wait-til-you-see-these-awesome-flower-nail-art-designs/)
+- [neon cheetah print nails](https://nails.allwomenstalk.com/wait-until-you-see-these-adorable-ideas-for-animal-nail-art/)
+- [neon turquoise nail polish](https://nails.allwomenstalk.com/fabulous-ways-to-wear-glitter-nail-polish/)
+- [sample of nail art designs](https://nails.allwomenstalk.com/fantastic-mardi-gras-nail-art-ideas/)
+- [nail design black lines](https://nails.allwomenstalk.com/these-black-and-white-nail-art-patterns-will-rock-your-world/)
 - [9 Awesome Nail Art Trends ...](https://makeup.allwomenstalk.com/awesome-nail-art-trends/)
 - [7 Flirty and Fun Nail Polishes for Valentines Day ...](https://nails.allwomenstalk.com/flirty-and-fun-nail-polishes-for-valentines-day/)
 

@@ -50,16 +50,16 @@ Clear nail polish is an amazing tool to have on hand at all times. From protecti
 
 ## Related Posts
 
-- [diy nails designs](https://nails.allwomenstalk.com/wicked-diy-nail-designs-for-the-back-to-school-season/)
+- [essie terracotta nail polish](https://nails.allwomenstalk.com/show-stopping-shades-of-nail-polish-for-your-next-pedicure/)
+- [color riche le stylo smoky glistening garnet](https://nails.allwomenstalk.com/eclectic-nail-trends-to-try-this-summer/)
 - [buntys jewelers](https://nails.allwomenstalk.com/top-nail-trends-for-fall/)
 - [gucci red nail polish](https://nails.allwomenstalk.com/mani-mania-heres-guccis-fall-nail-polish-line/)
-- [essie terracotta nail polish](https://nails.allwomenstalk.com/show-stopping-shades-of-nail-polish-for-your-next-pedicure/)
 - [pure ice nail polish](https://nails.allwomenstalk.com/fall-for-new-pure-ice-fall-nail-colors/)
-- [popular nail colors this fall](https://nails.allwomenstalk.com/crazy-awesome-nail-polish-colors-for-fall/)
-- [color riche le stylo smoky glistening garnet](https://nails.allwomenstalk.com/eclectic-nail-trends-to-try-this-summer/)
+- [pedi colour](https://nails.allwomenstalk.com/magnificent-mani-pedi-color-pairings-to-make-you-smile/)
 - [pastel french tips](https://nails.allwomenstalk.com/fabulous-french-tip-designs/)
 - [sally hansen iridescent nail polish](https://nails.allwomenstalk.com/popular-nail-polishes-from-sally-hansen-you-should-have-in-your-collection/)
-- [pedi colour](https://nails.allwomenstalk.com/magnificent-mani-pedi-color-pairings-to-make-you-smile/)
+- [popular nail colors this fall](https://nails.allwomenstalk.com/crazy-awesome-nail-polish-colors-for-fall/)
+- [diy nails designs](https://nails.allwomenstalk.com/wicked-diy-nail-designs-for-the-back-to-school-season/)
 - [8 Tips for Fixing Those Nail Polish Disasters ...](https://makeup.allwomenstalk.com/tips-for-fixing-those-nail-polish-disasters/)
 - [7 Ways to Use Nail Polish Remover ...](https://lifestyle.allwomenstalk.com/ways-to-use-nail-polish-remover/)
 

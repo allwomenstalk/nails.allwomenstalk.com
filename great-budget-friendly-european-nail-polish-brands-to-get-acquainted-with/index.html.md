@@ -70,16 +70,16 @@ Are there any other lesser known European nail polish brands to add to the mix? 
 
 ## Related Posts
 
-- [paris le stylo endless pearl](https://nails.allwomenstalk.com/most-creative-celebrity-nail-polish-designs/)
-- [white nails with snowman](https://nails.allwomenstalk.com/easy-to-design-holiday-themed-nails/)
-- [cheap nail polishes](https://nails.allwomenstalk.com/cute-and-affordable-nail-polish-options/)
 - [eccentric nails](https://nails.allwomenstalk.com/amazing-nail-artists-to-follow-on-instagram/)
-- [sephora nail decals](https://nails.allwomenstalk.com/nail-stickers-for-a-fun-and-flirty-manicure/)
-- [celebrities nail designs](https://nails.allwomenstalk.com/trendsetting-celebrities-who-are-known-for-their-nail-art-obsession/)
-- [loreal paris le stylo infinite sky](https://nails.allwomenstalk.com/of-the-prettiest-nail-colors-by-essie/)
-- [christmas nail polish](https://nails.allwomenstalk.com/best-nail-polish-colours-for-the-holidays-this-year/)
-- [nail fun facts](https://nails.allwomenstalk.com/fun-facts-about-nail-polish-brands-you-should-know/)
+- [paris le stylo endless pearl](https://nails.allwomenstalk.com/most-creative-celebrity-nail-polish-designs/)
+- [cheap nail polishes](https://nails.allwomenstalk.com/cute-and-affordable-nail-polish-options/)
 - [manicure tutorials](https://nails.allwomenstalk.com/stylish-youtube-manicure-tutorials-to-watch-for-date-night/)
+- [christmas nail polish](https://nails.allwomenstalk.com/best-nail-polish-colours-for-the-holidays-this-year/)
+- [loreal paris le stylo infinite sky](https://nails.allwomenstalk.com/of-the-prettiest-nail-colors-by-essie/)
+- [celebrities nail designs](https://nails.allwomenstalk.com/trendsetting-celebrities-who-are-known-for-their-nail-art-obsession/)
+- [nail fun facts](https://nails.allwomenstalk.com/fun-facts-about-nail-polish-brands-you-should-know/)
+- [sephora nail decals](https://nails.allwomenstalk.com/nail-stickers-for-a-fun-and-flirty-manicure/)
+- [white nails with snowman](https://nails.allwomenstalk.com/easy-to-design-holiday-themed-nails/)
 - [7 Most Fashionable Nail Polishes of Today ...](https://allwomenstalk.com/7-most-fashionable-nail-polishes-of-today/)
 - [Top 7 Nail Polish Brands ...](https://allwomenstalk.com/top-7-nail-polish-brands/)
 

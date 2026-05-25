@@ -203,15 +203,15 @@ Do you like steampunk? What's your favorite thing about it?
 
 ## Related Posts
 
-- [easy do it yourself nail art](https://nails.allwomenstalk.com/easy-nail-art-designs-for-lazy-ladies/)
-- [marvel character with long nails](https://nails.allwomenstalk.com/these-are-the-best-looking-superhero-nail-art-designs-in-the-world/)
-- [southwestern nails](https://nails.allwomenstalk.com/wait-till-you-see-these-tribal-nail-art-patterns/)
-- [art designs for nails](https://nails.allwomenstalk.com/this-is-what-striped-nail-art-looks-like-fabulous-ideas/)
-- [shapes in polish](https://nails.allwomenstalk.com/make-your-polish-even-prettier-with-these-different-shapes-to-file-your-nails/)
-- [gelish nail polish ideas](https://nails.allwomenstalk.com/flirty-spring-nail-art-ideas-for-nail-polish-addicts/)
 - [lilac short nail designs](https://nails.allwomenstalk.com/got-short-nails-here-are-the-nail-art-designs-youll-love/)
 - [red pink white nail designs](https://nails.allwomenstalk.com/here-are-the-coolest-polka-dot-nail-art-patterns-in-the-world/)
+- [gelish nail polish ideas](https://nails.allwomenstalk.com/flirty-spring-nail-art-ideas-for-nail-polish-addicts/)
+- [easy do it yourself nail art](https://nails.allwomenstalk.com/easy-nail-art-designs-for-lazy-ladies/)
+- [shapes in polish](https://nails.allwomenstalk.com/make-your-polish-even-prettier-with-these-different-shapes-to-file-your-nails/)
+- [art designs for nails](https://nails.allwomenstalk.com/this-is-what-striped-nail-art-looks-like-fabulous-ideas/)
 - [one color nail inspo](https://nails.allwomenstalk.com/awesome-reasons-to-try-neon-nail-art/)
+- [southwestern nails](https://nails.allwomenstalk.com/wait-till-you-see-these-tribal-nail-art-patterns/)
+- [marvel character with long nails](https://nails.allwomenstalk.com/these-are-the-best-looking-superhero-nail-art-designs-in-the-world/)
 - [xmas nails](https://nails.allwomenstalk.com/spread-the-luck-nail-designs-for-st-patricks-day/)
 - [9 Awesome Nail Art Trends ...](https://makeup.allwomenstalk.com/awesome-nail-art-trends/)
 - [9 Cool Nail Wraps Youve Got to See ...](https://nails.allwomenstalk.com/cool-nail-wraps-youve-got-to-see/)

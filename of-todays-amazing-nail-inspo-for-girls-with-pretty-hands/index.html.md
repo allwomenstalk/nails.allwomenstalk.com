@@ -46,16 +46,16 @@ Aren't these gorgeous? Tell us which ones you liked best! And if your fav nail a
 
 ## Related Posts
 
-- [dreamy nail](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram-3/)
-- [stiletto nail inspo](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram-2/)
-- [light pink nail inspo](https://nails.allwomenstalk.com/of-todays-ultimate-best-nail-inspo-for-women-who-want-to-look-hot-af/)
-- [festival nails 2023](https://nails.allwomenstalk.com/best-christmas-easy-nails-ideas/)
-- [christmas confetti nail polish](https://nails.allwomenstalk.com/best-acrylic-christmas-nails/)
 - [inspo](https://nails.allwomenstalk.com/of-todays-revolutionary-nail-inspo-for-women-who-can-not-live-without-a-mani/)
+- [coconut girl nail inspo](https://nails.allwomenstalk.com/of-todays-heavenly-nail-inspo-for-girls-obsessed-with-polish-art/)
+- [nail inspi](https://nails.allwomenstalk.com/of-todays-drool-worthy-nail-inspo-for-women-who-love-new-nail-styles/)
 - [nails inspo silver](https://nails.allwomenstalk.com/of-todays-awesome-nail-inspo-for-girls-who-are-always-on-trend/)
 - [womens natural nails](https://nails.allwomenstalk.com/best-natural-christmas-nails/)
-- [nail inspi](https://nails.allwomenstalk.com/of-todays-drool-worthy-nail-inspo-for-women-who-love-new-nail-styles/)
-- [coconut girl nail inspo](https://nails.allwomenstalk.com/of-todays-heavenly-nail-inspo-for-girls-obsessed-with-polish-art/)
+- [christmas confetti nail polish](https://nails.allwomenstalk.com/best-acrylic-christmas-nails/)
+- [light pink nail inspo](https://nails.allwomenstalk.com/of-todays-ultimate-best-nail-inspo-for-women-who-want-to-look-hot-af/)
+- [festival nails 2023](https://nails.allwomenstalk.com/best-christmas-easy-nails-ideas/)
+- [stiletto nail inspo](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram-2/)
+- [dreamy nail](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram-3/)
 - [19 of Todays Awesome Nail Inspo for Women Who Want...](https://nails.allwomenstalk.com/of-todays-awesome-nail-inspo-for-women-who-want-to-invest-in-their-look/)
 - [14 of Todays Drool Worthy  Nail Inspo for Women Wh...](https://nails.allwomenstalk.com/of-todays-drool-worthy-nail-inspo-for-women-who-want-an-incredible-mani-inspo/)
 

@@ -177,16 +177,16 @@ Do you plan to do New Year's Eve nail art this year? I will definitely be painti
 
 ## Related Posts
 
-- [manicure for wedding](https://wedding.allwomenstalk.com/winter-wedding-nail-art-designs-for-your-special-day/)
-- [hanukkah inspired nails](https://nails.allwomenstalk.com/fantastic-hanukkah-nail-art-designs-to-help-you-celebrate/)
-- [nails white with flowers](https://nails.allwomenstalk.com/wait-til-you-see-these-awesome-flower-nail-art-designs/)
 - [nail videos](https://nails.allwomenstalk.com/up-your-style-game-with-these-nail-porn-videos/)
-- [black with pink glitter nails](https://nails.allwomenstalk.com/ideal-gifts-for-a-die-hard-nail-polish-fan/)
-- [nail designs for valentines](https://nails.allwomenstalk.com/fabulous-valentines-day-nail-art-designs/)
-- [festive fingernails](https://nails.allwomenstalk.com/fabulously-festive-nail-art-tutorials/)
+- [neon turquoise nail polish](https://nails.allwomenstalk.com/fabulous-ways-to-wear-glitter-nail-polish/)
 - [sample of nail art designs](https://nails.allwomenstalk.com/fantastic-mardi-gras-nail-art-ideas/)
 - [nail instagram names](https://nails.allwomenstalk.com/the-best-instagram-accounts-to-follow-for-some-serious-nail-art-inspo/)
-- [neon turquoise nail polish](https://nails.allwomenstalk.com/fabulous-ways-to-wear-glitter-nail-polish/)
+- [manicure for wedding](https://wedding.allwomenstalk.com/winter-wedding-nail-art-designs-for-your-special-day/)
+- [festive fingernails](https://nails.allwomenstalk.com/fabulously-festive-nail-art-tutorials/)
+- [black with pink glitter nails](https://nails.allwomenstalk.com/ideal-gifts-for-a-die-hard-nail-polish-fan/)
+- [hanukkah inspired nails](https://nails.allwomenstalk.com/fantastic-hanukkah-nail-art-designs-to-help-you-celebrate/)
+- [nails white with flowers](https://nails.allwomenstalk.com/wait-til-you-see-these-awesome-flower-nail-art-designs/)
+- [nail designs for valentines](https://nails.allwomenstalk.com/fabulous-valentines-day-nail-art-designs/)
 - [9 Awesome Nail Art Trends ...](https://makeup.allwomenstalk.com/awesome-nail-art-trends/)
 - [10 Top Nail Design Trends for 2013 ...](https://nails.allwomenstalk.com/top-nail-design-trends-for/)
 

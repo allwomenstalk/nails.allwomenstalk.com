@@ -134,16 +134,16 @@ Which look is your favorite? Do you think you can copy it?
 
 ## Related Posts
 
-- [3 dimensional nail art](https://nails.allwomenstalk.com/3-d-nail-art-all-of-your-friends-will-flip-over/)
-- [paper nail ideas](https://nails.allwomenstalk.com/booksworms-will-love-this-newspaper-nail-art/)
-- [nail trends 2016](https://nails.allwomenstalk.com/these-are-the-hottest-nails-trends-for/)
-- [basketball toenails](https://nails.allwomenstalk.com/basketball-nails-thatll-get-you-pumped-for-march-madness/)
 - [sharpie on nails](https://nails.allwomenstalk.com/pieces-of-nail-art-you-can-create-with-a-sharpie/)
+- [minimalist disney nails](https://nails.allwomenstalk.com/amazing-pieces-of-minimalist-nail-art/)
+- [nail trends 2016](https://nails.allwomenstalk.com/these-are-the-hottest-nails-trends-for/)
 - [coral ombre nails](https://nails.allwomenstalk.com/ombre-nail-tutorials-thatll-teach-you-how-to-look-your-best/)
+- [basketball toenails](https://nails.allwomenstalk.com/basketball-nails-thatll-get-you-pumped-for-march-madness/)
+- [paper nail ideas](https://nails.allwomenstalk.com/booksworms-will-love-this-newspaper-nail-art/)
+- [3 dimensional nail art](https://nails.allwomenstalk.com/3-d-nail-art-all-of-your-friends-will-flip-over/)
 - [green bay packers nail designs](https://nails.allwomenstalk.com/show-your-team-spirit-with-this-super-bowl-nail-art/)
 - [nail style names](https://nails.allwomenstalk.com/check-out-this-valentines-day-nail-art-inspiration/)
 - [loreal paris la maximalist eyeshadow skirt](https://nails.allwomenstalk.com/furry-nails-are-a-bizarre-new-nail-trend/)
-- [minimalist disney nails](https://nails.allwomenstalk.com/amazing-pieces-of-minimalist-nail-art/)
 - [24 Fancy Nail Art Designs That Youll Love Looking ...](https://beauty.allwomenstalk.com/fancy-nail-art-designs-that-youll-love-looking-at-all-day-long/)
 - [These 32 Black and White Nail Art Patterns Will Ro...](https://nails.allwomenstalk.com/these-black-and-white-nail-art-patterns-will-rock-your-world/)
 

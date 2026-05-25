@@ -222,15 +222,15 @@ Do you see something here that you want to try? Let me know how it goes!
 
 ## Related Posts
 
-- [summer easy nail art](https://nails.allwomenstalk.com/summer-gets-even-hotter-with-these-nail-art-ideas/)
-- [rainbow nails](https://nails.allwomenstalk.com/awesome-beach-themed-nail-art-ideas-to-make-your-summer-rock/)
-- [white nails with blue rhinestones](https://nails.allwomenstalk.com/bling-bling-sparkling-ideas-for-using-rhinestones-on-your-nails/)
-- [lace manicure](https://nails.allwomenstalk.com/you-wont-believe-how-cool-it-is-to-wear-lace-on-your-nails/)
-- [loreal color riche le stylo smoky shadow amber rus...](https://nails.allwomenstalk.com/summery-nail-polish-colors-for-the-season/)
-- [fourth of.july nails](https://nails.allwomenstalk.com/4th-of-july-nail-art-that-will-blow-your-mind/)
 - [jamaican nail design ideas](https://nails.allwomenstalk.com/wait-until-you-see-these-outstanding-ways-to-do-geometric-nail-art/)
 - [sparkly white toe nails](https://nails.allwomenstalk.com/rock-those-sandals-with-one-of-these-jaw-dropping-toe-nail-art-designs/)
+- [loreal color riche le stylo smoky shadow amber rus...](https://nails.allwomenstalk.com/summery-nail-polish-colors-for-the-season/)
 - [block nail art](https://nails.allwomenstalk.com/heres-how-to-take-the-color-blocking-trend-to-your-nails/)
+- [white nails with blue rhinestones](https://nails.allwomenstalk.com/bling-bling-sparkling-ideas-for-using-rhinestones-on-your-nails/)
+- [fourth of.july nails](https://nails.allwomenstalk.com/4th-of-july-nail-art-that-will-blow-your-mind/)
+- [lace manicure](https://nails.allwomenstalk.com/you-wont-believe-how-cool-it-is-to-wear-lace-on-your-nails/)
+- [rainbow nails](https://nails.allwomenstalk.com/awesome-beach-themed-nail-art-ideas-to-make-your-summer-rock/)
+- [summer easy nail art](https://nails.allwomenstalk.com/summer-gets-even-hotter-with-these-nail-art-ideas/)
 - [nails formal](https://nails.allwomenstalk.com/sophisticated-nail-art-for-when-you-need-to-look-amazing/)
 - [10 Top Nail Design Trends for 2013 ...](https://nails.allwomenstalk.com/top-nail-design-trends-for/)
 - [9 Most Creative Celebrity Nail Polish Designs ...](https://nails.allwomenstalk.com/most-creative-celebrity-nail-polish-designs/)

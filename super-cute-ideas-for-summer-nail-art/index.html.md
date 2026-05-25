@@ -206,16 +206,16 @@ Did you see any summer nail art designs you want to try? I'd like to try quite a
 
 ## Related Posts
 
+- [pedi colour](https://nails.allwomenstalk.com/magnificent-mani-pedi-color-pairings-to-make-you-smile/)
+- [pastel french tips](https://nails.allwomenstalk.com/fabulous-french-tip-designs/)
+- [color riche le stylo smoky glistening garnet](https://nails.allwomenstalk.com/eclectic-nail-trends-to-try-this-summer/)
+- [pure ice nail polish](https://nails.allwomenstalk.com/fall-for-new-pure-ice-fall-nail-colors/)
 - [essie terracotta nail polish](https://nails.allwomenstalk.com/show-stopping-shades-of-nail-polish-for-your-next-pedicure/)
 - [fun nails for summer](https://nails.allwomenstalk.com/fun-nail-patterns-for-summer/)
-- [pure ice nail polish](https://nails.allwomenstalk.com/fall-for-new-pure-ice-fall-nail-colors/)
-- [nail art pinterst](https://nails.allwomenstalk.com/must-follow-nail-art-pinterest-boards/)
-- [gel manicure designs short nails](https://nails.allwomenstalk.com/dynamic-looks-for-short-nails/)
-- [color riche le stylo smoky glistening garnet](https://nails.allwomenstalk.com/eclectic-nail-trends-to-try-this-summer/)
 - [simple clear nail designs](https://nails.allwomenstalk.com/great-uses-for-clear-nail-polish-besides-your-nails/)
 - [sally hansen iridescent nail polish](https://nails.allwomenstalk.com/popular-nail-polishes-from-sally-hansen-you-should-have-in-your-collection/)
-- [pastel french tips](https://nails.allwomenstalk.com/fabulous-french-tip-designs/)
-- [pedi colour](https://nails.allwomenstalk.com/magnificent-mani-pedi-color-pairings-to-make-you-smile/)
+- [gel manicure designs short nails](https://nails.allwomenstalk.com/dynamic-looks-for-short-nails/)
+- [nail art pinterst](https://nails.allwomenstalk.com/must-follow-nail-art-pinterest-boards/)
 - [9 Awesome Nail Art Trends ...](https://makeup.allwomenstalk.com/awesome-nail-art-trends/)
 - [7 Lovely Pastel Nail Polishes for a Delicious Summ...](https://nails.allwomenstalk.com/lovely-pastel-nail-polishes-for-a-delicious-summer-manicure/)
 

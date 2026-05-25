@@ -36,16 +36,16 @@ Aren't these gorgeous? Tell us which ones you liked best! And if your fav nail a
 
 ## Related Posts
 
-- [96 Best Beauty Nails ...](https://nails.allwomenstalk.com/best-beauty-nails/)
-- [76 Best Best Nails ...](https://nails.allwomenstalk.com/best-best-nails/)
+- [why does my nail polish have scratches](https://nails.allwomenstalk.com/of-todays-extraordinary-nail-inspo-for-dolls-who-are-taking-care-of-their-nails/)
+- [christmas nail stripes](https://nails.allwomenstalk.com/best-polished-nails/)
+- [mani inspo](https://nails.allwomenstalk.com/of-todays-swoon-worthy-nail-inspo-for-mani-obsessed-people/)
+- [lets be friends dip](https://nails.allwomenstalk.com/best-gel-nails/)
 - [pastel nails](https://nails.allwomenstalk.com/best-pastel-nails/)
 - [tiffany blue nails](https://nails.allwomenstalk.com/best-blue-nails/)
-- [mani inspo](https://nails.allwomenstalk.com/of-todays-swoon-worthy-nail-inspo-for-mani-obsessed-people/)
-- [french tip 3.5](https://nails.allwomenstalk.com/best-exotic-nails/)
-- [lets be friends dip](https://nails.allwomenstalk.com/best-gel-nails/)
+- [96 Best Beauty Nails ...](https://nails.allwomenstalk.com/best-beauty-nails/)
 - [long nails sharp](https://nails.allwomenstalk.com/best-long-nails/)
-- [christmas nail stripes](https://nails.allwomenstalk.com/best-polished-nails/)
-- [why does my nail polish have scratches](https://nails.allwomenstalk.com/of-todays-extraordinary-nail-inspo-for-dolls-who-are-taking-care-of-their-nails/)
+- [76 Best Best Nails ...](https://nails.allwomenstalk.com/best-best-nails/)
+- [french tip 3.5](https://nails.allwomenstalk.com/best-exotic-nails/)
 - [10 Tips for Beautiful Nails ...](https://allwomenstalk.com/tips-for-beautiful-nails/)
 - [18 of Todays Drool Worthy  Nail Inspo for Women Wh...](https://nails.allwomenstalk.com/of-todays-drool-worthy-nail-inspo-for-women-who-love-new-nail-styles/)
 

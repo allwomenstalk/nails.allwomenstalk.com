@@ -132,15 +132,15 @@ Which one is your favorite?
 
 ## Related Posts
 
-- [basketball toenails](https://nails.allwomenstalk.com/basketball-nails-thatll-get-you-pumped-for-march-madness/)
-- [nail trends 2016](https://nails.allwomenstalk.com/these-are-the-hottest-nails-trends-for/)
-- [sharpie on nails](https://nails.allwomenstalk.com/pieces-of-nail-art-you-can-create-with-a-sharpie/)
 - [paper nail ideas](https://nails.allwomenstalk.com/booksworms-will-love-this-newspaper-nail-art/)
-- [green bay packers nail designs](https://nails.allwomenstalk.com/show-your-team-spirit-with-this-super-bowl-nail-art/)
-- [pink floyd nail designs](https://nails.allwomenstalk.com/youre-going-to-love-this-grunge-nail-art/)
-- [nail trend](https://nails.allwomenstalk.com/love-or-hate-the-nail-trends-of-that-divided-opinion/)
-- [nail style names](https://nails.allwomenstalk.com/check-out-this-valentines-day-nail-art-inspiration/)
+- [sharpie on nails](https://nails.allwomenstalk.com/pieces-of-nail-art-you-can-create-with-a-sharpie/)
 - [loreal paris la maximalist eyeshadow skirt](https://nails.allwomenstalk.com/furry-nails-are-a-bizarre-new-nail-trend/)
+- [pink floyd nail designs](https://nails.allwomenstalk.com/youre-going-to-love-this-grunge-nail-art/)
+- [basketball toenails](https://nails.allwomenstalk.com/basketball-nails-thatll-get-you-pumped-for-march-madness/)
+- [nail trend](https://nails.allwomenstalk.com/love-or-hate-the-nail-trends-of-that-divided-opinion/)
+- [nail trends 2016](https://nails.allwomenstalk.com/these-are-the-hottest-nails-trends-for/)
+- [nail style names](https://nails.allwomenstalk.com/check-out-this-valentines-day-nail-art-inspiration/)
+- [green bay packers nail designs](https://nails.allwomenstalk.com/show-your-team-spirit-with-this-super-bowl-nail-art/)
 - [coral ombre nails](https://nails.allwomenstalk.com/ombre-nail-tutorials-thatll-teach-you-how-to-look-your-best/)
 - [35 Animal Print Items Youll Go Wild for ...](https://fashion.allwomenstalk.com/animal-print-items-youll-go-wild-for/)
 - [Up Your Style Game with These Nail Porn Videos ...](https://nails.allwomenstalk.com/up-your-style-game-with-these-nail-porn-videos/)

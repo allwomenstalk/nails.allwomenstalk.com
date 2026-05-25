@@ -54,14 +54,14 @@ Do you use tape to help you make nail designs? If so, have you tried any of thes
 
 - [best nail polish remover for glitter](https://nails.allwomenstalk.com/tips-on-how-to-remove-glitter-nail-polish/)
 - [keeping long nails](https://nails.allwomenstalk.com/tips-for-growing-long-nails-and-keeping-them/)
-- [what food makes nails grow](https://food.allwomenstalk.com/superfoods-to-help-your-nails-grow/)
 - [how to wash your hair with acrylic nails](https://nails.allwomenstalk.com/tips-for-caring-for-acrylic-nails/)
-- [fingernails half white half pink](https://nails.allwomenstalk.com/home-remedies-for-brittle-nails/)
 - [acrylic nail maintenance](https://beauty.allwomenstalk.com/ways-to-take-care-of-acrylic-nails/)
 - [why arent my gel nails drying](https://nails.allwomenstalk.com/tips-on-how-to-make-nail-polish-stay-on-longer/)
-- [nail chemical formula](https://nails.allwomenstalk.com/things-you-need-to-know-about-nail-polish-formulas/)
+- [fingernails half white half pink](https://nails.allwomenstalk.com/home-remedies-for-brittle-nails/)
 - [nail colors for my skin tone](https://nails.allwomenstalk.com/tips-on-matching-nail-polish-color-with-your-skin-tone/)
 - [how to get nail polish remover off skin](https://lifestyle.allwomenstalk.com/ways-to-use-nail-polish-remover/)
+- [nail chemical formula](https://nails.allwomenstalk.com/things-you-need-to-know-about-nail-polish-formulas/)
+- [what food makes nails grow](https://food.allwomenstalk.com/superfoods-to-help-your-nails-grow/)
 - [7 Best Blogs on Nail Art ...](https://allwomenstalk.com/best-blogs-on-nail-art/)
 - [7 Superb Tips on Doing Nail Art for Clumsy Hands ....](https://nails.allwomenstalk.com/superb-tips-on-doing-nail-art-for-clumsy-hands/)
 

@@ -42,13 +42,13 @@ Because of their beautiful appearance, blue nail designs will never go out of st
 
 ## Related Posts
 
-- [spring inspired nails](https://nails.allwomenstalk.com/fresh-spring-inspired-nail-tutorials/)
-- [what is the best top coat for acrylic nails](https://nails.allwomenstalk.com/best-top-coats-to-top-off-your-marvelous-mani/)
+- [edgy rock nails](https://nails.allwomenstalk.com/edgy-manicures-to-rock-on-your-first-date/)
 - [punk rock nail designs](https://nails.allwomenstalk.com/grungy-nail-designs-that-are-too-hot-to-handle/)
-- [trendy nail designs for short nails](https://nails.allwomenstalk.com/trendy-nail-designs-for-short-nails/)
+- [spring inspired nails](https://nails.allwomenstalk.com/fresh-spring-inspired-nail-tutorials/)
 - [i love me nails](https://nails.allwomenstalk.com/quirky-nail-designs-you-will-love/)
 - [trendy nail colours](https://nails.allwomenstalk.com/trendy-nail-polish-colors-you-absolutely-must-try-now/)
-- [edgy rock nails](https://nails.allwomenstalk.com/edgy-manicures-to-rock-on-your-first-date/)
+- [what is the best top coat for acrylic nails](https://nails.allwomenstalk.com/best-top-coats-to-top-off-your-marvelous-mani/)
+- [trendy nail designs for short nails](https://nails.allwomenstalk.com/trendy-nail-designs-for-short-nails/)
 - [zooey dechanel engagement ring](https://nails.allwomenstalk.com/electric-zooey-deschanel-inspired-nail-designs/)
 - [greyish purple nails](https://nails.allwomenstalk.com/nail-color-combinations-that-look-divine/)
 - [fresh nail designs](https://nails.allwomenstalk.com/fresh-nail-tutorials-for-easter/)

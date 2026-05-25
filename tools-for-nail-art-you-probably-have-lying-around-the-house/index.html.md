@@ -42,16 +42,16 @@ Do you do nail art? I’m not that great at it, but I love the way it looks when
 
 ## Related Posts
 
-- [do your own manicure](https://nails.allwomenstalk.com/steps-to-do-your-own-manicure/)
-- [7 Ways to Care for Cracked Skin on Your Hands and ...](https://skincare.allwomenstalk.com/ways-to-care-for-cracked-skin-on-your-hands-and-feet/)
-- [Heres How to Keep Your Nails in Perfect Condition ...](https://nails.allwomenstalk.com/heres-how-to-keep-your-nails-in-perfect-condition/)
-- [No More Cracks: 7 Ways to Prep Your Feet for Sanda...](https://skincare.allwomenstalk.com/no-more-cracks-ways-to-prep-your-feet-for-sandal-season/)
-- [7 Things You Need to Know about Gel Manicures ...](https://nails.allwomenstalk.com/things-you-need-to-know-about-gel-manicures/)
-- [7 Things Your Fingernails Are Telling You about Yo...](https://health.allwomenstalk.com/things-your-fingernails-are-telling-you-about-your-health/)
-- [DIY Beauty: the Best Ways to Dry Nail Polish Quick...](https://nails.allwomenstalk.com/diy-beauty-the-best-ways-to-dry-nail-polish-quickly/)
-- [vitamins for strong nails](https://nails.allwomenstalk.com/take-these-vitamins-and-minerals-for-stronger-nails/)
-- [how to whiten nails](https://nails.allwomenstalk.com/whiten-your-discolored-nails-with-these-simple-home-remedies/)
 - [7 Tips for Getting Water Marbled Nail Art Just Rig...](https://nails.allwomenstalk.com/tips-for-getting-water-marbled-nail-art-just-right/)
+- [DIY Beauty: the Best Ways to Dry Nail Polish Quick...](https://nails.allwomenstalk.com/diy-beauty-the-best-ways-to-dry-nail-polish-quickly/)
+- [do your own manicure](https://nails.allwomenstalk.com/steps-to-do-your-own-manicure/)
+- [7 Things You Need to Know about Gel Manicures ...](https://nails.allwomenstalk.com/things-you-need-to-know-about-gel-manicures/)
+- [how to whiten nails](https://nails.allwomenstalk.com/whiten-your-discolored-nails-with-these-simple-home-remedies/)
+- [7 Things Your Fingernails Are Telling You about Yo...](https://health.allwomenstalk.com/things-your-fingernails-are-telling-you-about-your-health/)
+- [No More Cracks: 7 Ways to Prep Your Feet for Sanda...](https://skincare.allwomenstalk.com/no-more-cracks-ways-to-prep-your-feet-for-sandal-season/)
+- [7 Ways to Care for Cracked Skin on Your Hands and ...](https://skincare.allwomenstalk.com/ways-to-care-for-cracked-skin-on-your-hands-and-feet/)
+- [vitamins for strong nails](https://nails.allwomenstalk.com/take-these-vitamins-and-minerals-for-stronger-nails/)
+- [Heres How to Keep Your Nails in Perfect Condition ...](https://nails.allwomenstalk.com/heres-how-to-keep-your-nails-in-perfect-condition/)
 - [8 Items to Keep on Hand for a Home Pedicure ...](https://allwomenstalk.com/8-items-to-keep-on-hand-for-a-home-pedicure/)
 - [8 Great Products for Nails ...](https://allwomenstalk.com/8-great-products-for-nails/)
 

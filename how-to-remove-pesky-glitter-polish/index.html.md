@@ -56,16 +56,16 @@ What other tips do you have for removing glitter polish?
 
 ## Related Posts
 
-- [ingredients nail polish](https://nails.allwomenstalk.com/you-never-want-these-ingredients-in-your-nail-polish/)
-- [what does nails tell about your health](https://nails.allwomenstalk.com/things-your-fingernails-can-tell-you-about-your-health/)
-- [dark nail cuticles](https://skincare.allwomenstalk.com/these-things-are-damaging-your-cuticles/)
-- [funny bunny bubble bath](https://nails.allwomenstalk.com/keep-your-cuticles-clean-with-these-nail-products/)
-- [dip nail shape](https://nails.allwomenstalk.com/what-does-your-nail-shape-say-about-you/)
-- [nails growth tips](https://nails.allwomenstalk.com/tips-to-growing-long-nails-fast/)
-- [how to open nail polish that wont open](https://nails.allwomenstalk.com/signs-its-time-to-throw-out-your-nail-polish/)
-- [marbling nail polish](https://nails.allwomenstalk.com/tutorials-thatll-teach-you-how-to-make-marble-nail-art/)
 - [how do i clean under my nails](https://nails.allwomenstalk.com/how-to-clean-underneath-your-nails/)
 - [manicure tools](https://nails.allwomenstalk.com/dont-give-yourself-a-manicure-without-these-tools/)
+- [what does nails tell about your health](https://nails.allwomenstalk.com/things-your-fingernails-can-tell-you-about-your-health/)
+- [funny bunny bubble bath](https://nails.allwomenstalk.com/keep-your-cuticles-clean-with-these-nail-products/)
+- [dark nail cuticles](https://skincare.allwomenstalk.com/these-things-are-damaging-your-cuticles/)
+- [dip nail shape](https://nails.allwomenstalk.com/what-does-your-nail-shape-say-about-you/)
+- [marbling nail polish](https://nails.allwomenstalk.com/tutorials-thatll-teach-you-how-to-make-marble-nail-art/)
+- [ingredients nail polish](https://nails.allwomenstalk.com/you-never-want-these-ingredients-in-your-nail-polish/)
+- [how to open nail polish that wont open](https://nails.allwomenstalk.com/signs-its-time-to-throw-out-your-nail-polish/)
+- [nails growth tips](https://nails.allwomenstalk.com/tips-to-growing-long-nails-fast/)
 - [Makeup 101: Cleaning Your Makeup Brushes ...](https://makeup.allwomenstalk.com/makeup-101-cleaning-your-makeup-brushes/)
 - [The Trick to Keeping Your Make-up in Place ...](https://makeup.allwomenstalk.com/the-trick-to-keeping-your-make-up-in-place/)
 
