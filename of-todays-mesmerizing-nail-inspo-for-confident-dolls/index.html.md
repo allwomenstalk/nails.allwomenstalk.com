@@ -3,7 +3,7 @@ title: "17 of Todays Mesmerizing Nail Inspo for Confident Dolls ..."
 description: "@jessicawashick; @nailpromagazine; @glistenandglow1; @essiepolish; @zoyanailpolish; More ..."
 url: "https://nails.allwomenstalk.com/of-todays-mesmerizing-nail-inspo-for-confident-dolls/"
 category: "nails"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 17 of Todays Mesmerizing Nail Inspo for Confident Dolls ...
@@ -48,16 +48,16 @@ Aren't these gorgeous? Tell us which ones you liked best! And if your fav nail a
 
 ## Related Posts
 
-- [naominailsnyc](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram-4/)
 - [thistle nail art](https://nails.allwomenstalk.com/of-todays-provocative-nail-inspo-for-women-who-never-leave-the-house-without-a-mani/)
-- [astonishing nails](https://nails.allwomenstalk.com/of-todays-astonishing-nail-inspo-for-women-who-can-not-live-without-a-mani/)
-- [love nails design](https://nails.allwomenstalk.com/of-todays-astonishing-nail-inspo-for-women-who-just-love-nails/)
-- [cute oval nails](https://nails.allwomenstalk.com/of-todays-extraordinary-nail-inspo-for-women-who-just-love-polish/)
 - [billionails](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram-8/)
+- [cute oval nails](https://nails.allwomenstalk.com/of-todays-extraordinary-nail-inspo-for-women-who-just-love-polish/)
+- [love nails design](https://nails.allwomenstalk.com/of-todays-astonishing-nail-inspo-for-women-who-just-love-nails/)
+- [astonishing nails](https://nails.allwomenstalk.com/of-todays-astonishing-nail-inspo-for-women-who-can-not-live-without-a-mani/)
 - [natural nails inspo](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram-7/)
 - [nail inspi](https://nails.allwomenstalk.com/of-todays-brilliant-nail-inspo-for-girls-who-care-about-their-nails/)
 - [irresistible nails](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram-5/)
 - [that girl nail inspo](https://nails.allwomenstalk.com/hottest-nail-inspiration-on-instagram/)
+- [naominailsnyc](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram-4/)
 - [17 of Todays Life Changing Nail Inspo for Women Wh...](https://nails.allwomenstalk.com/of-todays-life-changing-nail-inspo-for-women-who-really-know-beauty/)
 - [15 of Todays to Die for Nail Inspo for Dolls That ...](https://nails.allwomenstalk.com/of-todays-to-die-for-nail-inspo-for-dolls-that-are-obsessed-with-nails/)
 
