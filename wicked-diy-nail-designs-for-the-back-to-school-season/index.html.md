@@ -3,7 +3,7 @@ title: "Head Back to School with These Wicked DIY Nail Designs ..."
 description: "Blue & Green Plaid Nail Art; Apple, Ruler and Pencil Nail Art; Nerdy Science Nail Art; Ultimate School Nail Art Guide; Cheerleader Inspired Nail Art; More ..."
 url: "https://nails.allwomenstalk.com/wicked-diy-nail-designs-for-the-back-to-school-season/"
 category: "nails"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # Head Back to School with These Wicked DIY Nail Designs ...
@@ -42,16 +42,16 @@ I can't wait for this cool season to take flight. Are you ready to be inspired b
 
 ## Related Posts
 
-- [Mani Mania: Best Nude Polishes for Fall ...](https://nails.allwomenstalk.com/mani-mania-best-nude-polishes-for-fall/)
-- [disney nail art designs](https://nails.allwomenstalk.com/disney-inspired-nail-designs-that-are-totally-charming/)
-- [popular nail colors this fall](https://nails.allwomenstalk.com/crazy-awesome-nail-polish-colors-for-fall/)
-- [gucci red nail polish](https://nails.allwomenstalk.com/mani-mania-heres-guccis-fall-nail-polish-line/)
-- [best nail artists](https://nails.allwomenstalk.com/nail-artists-to-follow-in-instagram/)
-- [new nails](https://nails.allwomenstalk.com/awesome-new-years-eve-nail-art-designs-to-help-you-ring-it-in/)
-- [trending holiday nail colors](https://nails.allwomenstalk.com/nail-polish-colors-for-the-holidays/)
-- [pinterest halloween gifts](https://nails.allwomenstalk.com/spooky-halloween-nail-ideas-from-pinterest-to-try/)
-- [nail polish 2014](https://nails.allwomenstalk.com/top-nail-polishes-of/)
 - [freddy krueger nails](https://nails.allwomenstalk.com/halloween-nail-art-tutorials-you-will-love/)
+- [best nail artists](https://nails.allwomenstalk.com/nail-artists-to-follow-in-instagram/)
+- [Mani Mania: Best Nude Polishes for Fall ...](https://nails.allwomenstalk.com/mani-mania-best-nude-polishes-for-fall/)
+- [new nails](https://nails.allwomenstalk.com/awesome-new-years-eve-nail-art-designs-to-help-you-ring-it-in/)
+- [nail polish 2014](https://nails.allwomenstalk.com/top-nail-polishes-of/)
+- [popular nail colors this fall](https://nails.allwomenstalk.com/crazy-awesome-nail-polish-colors-for-fall/)
+- [pinterest halloween gifts](https://nails.allwomenstalk.com/spooky-halloween-nail-ideas-from-pinterest-to-try/)
+- [gucci red nail polish](https://nails.allwomenstalk.com/mani-mania-heres-guccis-fall-nail-polish-line/)
+- [trending holiday nail colors](https://nails.allwomenstalk.com/nail-polish-colors-for-the-holidays/)
+- [disney nail art designs](https://nails.allwomenstalk.com/disney-inspired-nail-designs-that-are-totally-charming/)
 - [Nail Art Tutorials for the Festive Season ...](https://nails.allwomenstalk.com/fabulously-festive-nail-art-tutorials/)
 - [These 32 Black and White Nail Art Patterns Will Ro...](https://nails.allwomenstalk.com/these-black-and-white-nail-art-patterns-will-rock-your-world/)
 
