@@ -3,7 +3,7 @@ title: "17 Intense Pedicures That Went Way Too Far ..."
 description: "Shiny Silver Knife-toes; The Sad Reality of the DIY Pinterest Pedicure; Oh, Honey, No; Extreme Pedicure: Weapons Edition; They Almost Touch the Ground; More ..."
 url: "https://nails.allwomenstalk.com/intense-pedicures-that-went-way-too-far/"
 category: "nails"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 17 Intense Pedicures That Went Way Too Far ...
@@ -118,16 +118,16 @@ I can't get over the bubble nails. They look weird enough on fingernails, but th
 
 ## Related Posts
 
+- [boston marathon nails](https://nails.allwomenstalk.com/breathtaking-nail-ideas-for-girls-who-need-serious-nail-inspo/)
+- [fall beach nails](https://nails.allwomenstalk.com/best-nail-colors-for-fall-for-girls-who-love-a-fresh-mani/)
 - [summer red nails ideas](https://nails.allwomenstalk.com/summertime-nail-reds-for-girls-who-want-to-stand-out/)
 - [autumn nails](https://nails.allwomenstalk.com/on-point-fall-nail-polish-trends-you-must-see/)
-- [boston marathon nails](https://nails.allwomenstalk.com/breathtaking-nail-ideas-for-girls-who-need-serious-nail-inspo/)
-- [grey nail color](https://nails.allwomenstalk.com/shades-of-grey-for-the-sexiest-nails-youve-ever-had/)
-- [beachy colors for nails](https://nails.allwomenstalk.com/nail-colors-for-girls-who-spend-their-summer-at-the-beach/)
-- [summer fingernail colors](https://nails.allwomenstalk.com/the-best-nail-colours-to-rock-in-summer/)
-- [fall colors for nail polish](https://nails.allwomenstalk.com/on-trend-pastel-nail-polishes-for-fall/)
-- [fall beach nails](https://nails.allwomenstalk.com/best-nail-colors-for-fall-for-girls-who-love-a-fresh-mani/)
 - [nails contour](https://nails.allwomenstalk.com/nail-contouring-is-the-latest-art-you-need-to-learn-asap/)
 - [simple line nail designs](https://nails.allwomenstalk.com/follow-these-ig-accounts-if-you-love-yourself-some-nail-art/)
+- [beachy colors for nails](https://nails.allwomenstalk.com/nail-colors-for-girls-who-spend-their-summer-at-the-beach/)
+- [grey nail color](https://nails.allwomenstalk.com/shades-of-grey-for-the-sexiest-nails-youve-ever-had/)
+- [fall colors for nail polish](https://nails.allwomenstalk.com/on-trend-pastel-nail-polishes-for-fall/)
+- [summer fingernail colors](https://nails.allwomenstalk.com/the-best-nail-colours-to-rock-in-summer/)
 - [8 Pretty Holiday Manicure and Pedicure ...](https://allwomenstalk.com/8-pretty-holiday-manicure-and-pedicure/)
 - [7 Fun and Innovative Nail Polishes Youll Want to T...](https://nails.allwomenstalk.com/fun-and-innovative-nail-polishes-youll-want-to-try/)
 

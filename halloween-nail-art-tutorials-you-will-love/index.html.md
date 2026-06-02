@@ -3,7 +3,7 @@ title: "15 Halloween Nail Art Tutorials You Will Love ..."
 description: "Black Cats; Black and White Cats and Bats; Eyeballs; Night Time Scene; Skull and Cross Bones; More ..."
 url: "https://nails.allwomenstalk.com/halloween-nail-art-tutorials-you-will-love/"
 category: "nails"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 15 Halloween Nail Art Tutorials You Will Love ...
@@ -75,15 +75,15 @@ I love all of these nail art designs and will be investing in an array of colors
 ## Related Posts
 
 - [disney nail art designs](https://nails.allwomenstalk.com/disney-inspired-nail-designs-that-are-totally-charming/)
+- [festive fingernails](https://nails.allwomenstalk.com/fabulously-festive-nail-art-tutorials/)
+- [manicure for wedding](https://wedding.allwomenstalk.com/winter-wedding-nail-art-designs-for-your-special-day/)
+- [nail instagram names](https://nails.allwomenstalk.com/the-best-instagram-accounts-to-follow-for-some-serious-nail-art-inspo/)
 - [nail polish 2014](https://nails.allwomenstalk.com/top-nail-polishes-of/)
 - [best nail artists](https://nails.allwomenstalk.com/nail-artists-to-follow-in-instagram/)
 - [trending holiday nail colors](https://nails.allwomenstalk.com/nail-polish-colors-for-the-holidays/)
 - [new nails](https://nails.allwomenstalk.com/awesome-new-years-eve-nail-art-designs-to-help-you-ring-it-in/)
-- [nail instagram names](https://nails.allwomenstalk.com/the-best-instagram-accounts-to-follow-for-some-serious-nail-art-inspo/)
-- [festive fingernails](https://nails.allwomenstalk.com/fabulously-festive-nail-art-tutorials/)
 - [black with pink glitter nails](https://nails.allwomenstalk.com/ideal-gifts-for-a-die-hard-nail-polish-fan/)
 - [hanukkah inspired nails](https://nails.allwomenstalk.com/fantastic-hanukkah-nail-art-designs-to-help-you-celebrate/)
-- [manicure for wedding](https://wedding.allwomenstalk.com/winter-wedding-nail-art-designs-for-your-special-day/)
 - [9 Awesome Nail Art Trends ...](https://makeup.allwomenstalk.com/awesome-nail-art-trends/)
 - [8 DIY Nail Art Techniques to Try ...](https://makeup.allwomenstalk.com/diy-nail-art-techniques-to-try/)
 

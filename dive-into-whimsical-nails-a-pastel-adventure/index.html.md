@@ -3,7 +3,7 @@ title: "A Pastel Nail Journey: Where Candy Hearts Take Center Stage..."
 description: "A Palette of Pastels: Why We Love Them; Crafting Your Candy Heart Look; The Joy of Experimentation; An Inspiring Dive into the Craft of Nail Art; More ..."
 url: "https://nails.allwomenstalk.com/dive-into-whimsical-nails-a-pastel-adventure/"
 category: "nails"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # A Pastel Nail Journey: Where Candy Hearts Take Center Stage...

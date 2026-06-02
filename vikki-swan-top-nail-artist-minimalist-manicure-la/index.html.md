@@ -3,7 +3,7 @@ title: "Vikki Swan - The Nail Artist Redefining Global Beauty Standards from Her
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://nails.allwomenstalk.com/vikki-swan-top-nail-artist-minimalist-manicure-la/"
 category: "nails"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # Vikki Swan \- The Nail Artist Redefining Global Beauty Standards from Her LA Studio

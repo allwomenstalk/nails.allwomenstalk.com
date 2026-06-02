@@ -3,7 +3,7 @@ title: "The Hottest Nail Trends for Summer 2018 ..."
 description: "Pastels; Marbled Finish; Natural Nail Shapes; More ..."
 url: "https://nails.allwomenstalk.com/the-hottest-nail-trends-for-summer/"
 category: "nails"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # The Hottest Nail Trends for Summer 2018 ...
@@ -30,16 +30,16 @@ There is a feeling of going back to basics for this summer’s nail trends, and 
 
 ## Related Posts
 
-- [negative space nail ideas](https://nails.allwomenstalk.com/negative-space-is-the-new-ig-hot-nail-trend/)
-- [acrylic nails vs dip](https://nails.allwomenstalk.com/gel-acrylic-or-dip-which-gives-the-best-nails/)
 - [that girl nail inspo](https://nails.allwomenstalk.com/hottest-nail-inspiration-on-instagram/)
-- [healthiest nail polish brands](https://nails.allwomenstalk.com/healthy-nail-polish-brands/)
+- [acrylic nails vs dip](https://nails.allwomenstalk.com/gel-acrylic-or-dip-which-gives-the-best-nails/)
 - [irresistible nails](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram-5/)
-- [easter nails different colors](https://nails.allwomenstalk.com/these-nail-art-patterns-will-make-your-easter-holiday-something-really-special/)
-- [nauls inspo](https://nails.allwomenstalk.com/nail-inspiration-from-instagram/)
-- [dolls nails](https://nails.allwomenstalk.com/of-todays-mesmerizing-nail-inspo-for-confident-dolls/)
-- [nail art for ladies](https://nails.allwomenstalk.com/nude-nail-designs-for-girls-who-like-to-keep-it-simple/)
 - [fall season nail colors](https://nails.allwomenstalk.com/of-the-most-beautiful-fall-season-nail-polish-colors/)
+- [nauls inspo](https://nails.allwomenstalk.com/nail-inspiration-from-instagram/)
+- [nail art for ladies](https://nails.allwomenstalk.com/nude-nail-designs-for-girls-who-like-to-keep-it-simple/)
+- [negative space nail ideas](https://nails.allwomenstalk.com/negative-space-is-the-new-ig-hot-nail-trend/)
+- [easter nails different colors](https://nails.allwomenstalk.com/these-nail-art-patterns-will-make-your-easter-holiday-something-really-special/)
+- [dolls nails](https://nails.allwomenstalk.com/of-todays-mesmerizing-nail-inspo-for-confident-dolls/)
+- [healthiest nail polish brands](https://nails.allwomenstalk.com/healthy-nail-polish-brands/)
 - [9 on-Trend Spring Nail Colors ...](https://makeup.allwomenstalk.com/on-trend-spring-nail-colors/)
 - [8 Sexiest Nail Polish ...](https://allwomenstalk.com/8-sexiest-nail-polish/)
 
