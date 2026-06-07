@@ -1,12 +1,12 @@
 ---
-title: "Check out This Valentines Day Nail Art Inspiration ..."
+title: "Check out This Valentine's Day Nail Art Inspiration ..."
 description: "Ombre; Hearts; Negative Space; Washi Tape Heart; Sexy Scalloped Nails; More ..."
 url: "https://nails.allwomenstalk.com/check-out-this-valentines-day-nail-art-inspiration/"
 category: "nails"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# Check out This Valentines Day Nail Art Inspiration ...
+# Check out This Valentine's Day Nail Art Inspiration ...
 
 All you need is love... and a little Valentine's Day nail art inspo! Here's hoping one of these ideas will inspire you to be a little more romantic this Valentine's Day.
 
@@ -144,18 +144,18 @@ Do these in pink and red, maybe with silver or gold, too?
 
 ## Related Posts
 
-- [spring bling nail designs](https://nails.allwomenstalk.com/pieces-of-springtime-nail-art-inspiration/)
+- [minimalist disney nails](https://nails.allwomenstalk.com/amazing-pieces-of-minimalist-nail-art/)
 - [nails emoji text](https://nails.allwomenstalk.com/pieces-of-emoji-nail-art-for-phone-addicts/)
-- [fall matte nails](https://nails.allwomenstalk.com/matte-nail-art-inspiration-thatll-make-you-look-elegant/)
-- [nordstrom chanel nail polish](https://nails.allwomenstalk.com/look-pretty-in-pale-polish-with-this-easter-nail-art/)
+- [3 dimensional nail art](https://nails.allwomenstalk.com/3-d-nail-art-all-of-your-friends-will-flip-over/)
 - [elegant fingernail designs](https://nails.allwomenstalk.com/an-elegant-nail-design-for-the-fanciest-occasions/)
 - [nab beauty](https://nails.allwomenstalk.com/nails-colors-you-should-nab-for-spring/)
-- [nail art birds](https://nails.allwomenstalk.com/nail-infographics-thatll-make-you-look-pretty-as-a-picture/)
+- [nordstrom chanel nail polish](https://nails.allwomenstalk.com/look-pretty-in-pale-polish-with-this-easter-nail-art/)
 - [green themed nails](https://nails.allwomenstalk.com/this-st-paddys-nail-art-will-make-others-green-with-envy/)
-- [minimalist disney nails](https://nails.allwomenstalk.com/amazing-pieces-of-minimalist-nail-art/)
-- [3 dimensional nail art](https://nails.allwomenstalk.com/3-d-nail-art-all-of-your-friends-will-flip-over/)
+- [nail art birds](https://nails.allwomenstalk.com/nail-infographics-thatll-make-you-look-pretty-as-a-picture/)
+- [fall matte nails](https://nails.allwomenstalk.com/matte-nail-art-inspiration-thatll-make-you-look-elegant/)
+- [spring bling nail designs](https://nails.allwomenstalk.com/pieces-of-springtime-nail-art-inspiration/)
 - [9 Awesome Nail Art Trends ...](https://makeup.allwomenstalk.com/awesome-nail-art-trends/)
-- [7 Flirty and Fun Nail Polishes for Valentines Day ...](https://nails.allwomenstalk.com/flirty-and-fun-nail-polishes-for-valentines-day/)
+- [7 Flirty and Fun Nail Polishes for Valentine's Day...](https://nails.allwomenstalk.com/flirty-and-fun-nail-polishes-for-valentines-day/)
 
 ## Site Information
 
