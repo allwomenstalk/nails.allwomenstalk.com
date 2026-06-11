@@ -3,7 +3,7 @@ title: "Exploring the Unique Charm of Naomi Yasuda's Nail Designs..."
 description: "The Art of Nail Expression; Behind the Scenes of an Iconic Collaboration; The Power of Personalization in Fashion; Join the Creativity Revolution; More ..."
 url: "https://nails.allwomenstalk.com/naomi-yasuda-nail-art/"
 category: "nails"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # Exploring the Unique Charm of Naomi Yasuda's Nail Designs...
