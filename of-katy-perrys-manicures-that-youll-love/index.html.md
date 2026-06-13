@@ -3,7 +3,7 @@ title: "7 of Katy Perry's Manicures That You'll Love ..."
 description: "The Obama Manicure; “Killer Queen” Manicure; The Hollywood Manicure; The Oompa Loompa Manicure; The Royal Wedding Manicure; More ..."
 url: "https://nails.allwomenstalk.com/of-katy-perrys-manicures-that-youll-love/"
 category: "nails"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 7 of Katy Perry's Manicures That You'll Love ...
@@ -57,15 +57,15 @@ If you love Katy Perry’s wacky manicures as much as I do, be sure to follow he
 ## Related Posts
 
 - [trendy fall nail polish colors](https://nails.allwomenstalk.com/trendy-nail-polish-colors-youll-enjoy-sporting-for-fall/)
-- [best chip resistant nail polish](https://nails.allwomenstalk.com/great-budget-friendly-european-nail-polish-brands-to-get-acquainted-with/)
-- [cheap nail polishes](https://nails.allwomenstalk.com/cute-and-affordable-nail-polish-options/)
-- [eccentric nails](https://nails.allwomenstalk.com/amazing-nail-artists-to-follow-on-instagram/)
-- [fall nails 2013](https://nails.allwomenstalk.com/on-trend-nail-polish-colours-for-fall/)
 - [paris le stylo endless pearl](https://nails.allwomenstalk.com/most-creative-celebrity-nail-polish-designs/)
-- [fall nail polishes](https://nails.allwomenstalk.com/gorgeous-fall-nail-polishes-to-try-this-year/)
 - [white nails with snowman](https://nails.allwomenstalk.com/easy-to-design-holiday-themed-nails/)
-- [essie raspberry red](https://nails.allwomenstalk.com/of-my-favorite-must-have-red-nail-polishes/)
 - [magnetic nail polish](https://nails.allwomenstalk.com/unique-nail-colors-sure-to-get-attention/)
+- [best chip resistant nail polish](https://nails.allwomenstalk.com/great-budget-friendly-european-nail-polish-brands-to-get-acquainted-with/)
+- [fall nail polishes](https://nails.allwomenstalk.com/gorgeous-fall-nail-polishes-to-try-this-year/)
+- [fall nails 2013](https://nails.allwomenstalk.com/on-trend-nail-polish-colours-for-fall/)
+- [cheap nail polishes](https://nails.allwomenstalk.com/cute-and-affordable-nail-polish-options/)
+- [essie raspberry red](https://nails.allwomenstalk.com/of-my-favorite-must-have-red-nail-polishes/)
+- [eccentric nails](https://nails.allwomenstalk.com/amazing-nail-artists-to-follow-on-instagram/)
 - [7 New Make up Products You'll Love ...](https://allwomenstalk.com/7-new-make-up-products-youll-love/)
 - [7 Neutral Nail Colours ...](https://allwomenstalk.com/neutral-nail-colours/)
 

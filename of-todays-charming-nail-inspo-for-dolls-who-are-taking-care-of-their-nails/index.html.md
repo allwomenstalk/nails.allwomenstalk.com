@@ -3,7 +3,7 @@ title: "17 of Today's Charming Nail Inspo for Dolls Who Are Taking Care of Their
 description: "@so_nailicious; @essiepolish; @cndworld; @nailsbymei; @yagala; More ..."
 url: "https://nails.allwomenstalk.com/of-todays-charming-nail-inspo-for-dolls-who-are-taking-care-of-their-nails/"
 category: "nails"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 17 of Today's Charming Nail Inspo for Dolls Who Are Taking Care of Their Nails ...
@@ -50,16 +50,16 @@ Aren't these gorgeous? Tell us which ones you liked best! And if your fav nail a
 
 ## Related Posts
 
-- [long nails sharp](https://nails.allwomenstalk.com/best-long-nails/)
-- [mani inspo](https://nails.allwomenstalk.com/of-todays-swoon-worthy-nail-inspo-for-mani-obsessed-people/)
-- [96 Best Beauty Nails ...](https://nails.allwomenstalk.com/best-beauty-nails/)
-- [why does my nail polish have scratches](https://nails.allwomenstalk.com/of-todays-extraordinary-nail-inspo-for-dolls-who-are-taking-care-of-their-nails/)
-- [76 Best Best Nails ...](https://nails.allwomenstalk.com/best-best-nails/)
-- [tiffany blue nails](https://nails.allwomenstalk.com/best-blue-nails/)
-- [loreal paris riche le stylo smoky eye golden](https://nails.allwomenstalk.com/of-todays-amazing-nail-inspo-for-women-who-really-know-beauty/)
-- [braltus inhaler](https://nails.allwomenstalk.com/of-todays-heavenly-nail-inspo-for-girls-looking-to-play-up-their-nails/)
 - [let's be friends dip](https://nails.allwomenstalk.com/best-gel-nails/)
+- [mani inspo](https://nails.allwomenstalk.com/of-todays-swoon-worthy-nail-inspo-for-mani-obsessed-people/)
+- [tiffany blue nails](https://nails.allwomenstalk.com/best-blue-nails/)
+- [why does my nail polish have scratches](https://nails.allwomenstalk.com/of-todays-extraordinary-nail-inspo-for-dolls-who-are-taking-care-of-their-nails/)
 - [christmas nail stripes](https://nails.allwomenstalk.com/best-polished-nails/)
+- [loreal paris riche le stylo smoky eye golden](https://nails.allwomenstalk.com/of-todays-amazing-nail-inspo-for-women-who-really-know-beauty/)
+- [76 Best Best Nails ...](https://nails.allwomenstalk.com/best-best-nails/)
+- [braltus inhaler](https://nails.allwomenstalk.com/of-todays-heavenly-nail-inspo-for-girls-looking-to-play-up-their-nails/)
+- [long nails sharp](https://nails.allwomenstalk.com/best-long-nails/)
+- [96 Best Beauty Nails ...](https://nails.allwomenstalk.com/best-beauty-nails/)
 - [21 of Today's Top Nail Inspo for Girls in Need of ...](https://nails.allwomenstalk.com/of-todays-top-nail-inspo-for-girls-in-need-of-a-serious-inspo/)
 - [15 of Today's to Die for Nail Inspo for Dolls That...](https://nails.allwomenstalk.com/of-todays-to-die-for-nail-inspo-for-dolls-that-are-obsessed-with-nails/)
 

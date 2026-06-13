@@ -3,7 +3,7 @@ title: "Gorgeous Prom Nail Designs to Wow 🤗 from Head to Toe ..."
 description: "Glittery French; Color Transition; Coral Shock; French Shine; Light Burberry Design; More ..."
 url: "https://nails.allwomenstalk.com/gorgeous-prom-nail-designs-to-wow-from-head-to-toe/"
 category: "nails"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # Gorgeous Prom Nail Designs to Wow 🤗 from Head to Toe ...
@@ -480,15 +480,15 @@ Proms nails come in a great variety of designs. They can be chosen to suit your 
 
 ## Related Posts
 
-- [weird nail trends](https://nails.allwomenstalk.com/nail-trends-skyrocketing-in-popularity-this-year/)
-- [nail story ii](https://nails.allwomenstalk.com/story-of-my-nails/)
-- [nightmare before christmas toenails](https://nails.allwomenstalk.com/halloween-nail-art-tutorials/)
-- [neutral nail polish color](https://nails.allwomenstalk.com/neutral-nail-colors-thatll-help-you-make-a-statement-while-remaining-professional/)
-- [summer nail polishes](https://nails.allwomenstalk.com/summer-nail-polishes-to-have-you-rocking-the-season-like-a-boss/)
-- [rocking nails](https://nails.allwomenstalk.com/quartz-nails-that-are-totally-rocking-the-internet-right-now/)
-- [french nail stickers](https://nails.allwomenstalk.com/of-the-coolest-nail-stickers-you-can-find-on-amazon-for-an-epic-manicure/)
-- [best glitter nail polishes](https://nails.allwomenstalk.com/best-nail-polishes-for-new-years-eve/)
 - [matching red lipstick and nail polish](https://fashion.allwomenstalk.com/genius-outfit-boards-for-women-rocking-red-lipstick-and-red-nails/)
+- [french nail stickers](https://nails.allwomenstalk.com/of-the-coolest-nail-stickers-you-can-find-on-amazon-for-an-epic-manicure/)
+- [nightmare before christmas toenails](https://nails.allwomenstalk.com/halloween-nail-art-tutorials/)
+- [nail story ii](https://nails.allwomenstalk.com/story-of-my-nails/)
+- [rocking nails](https://nails.allwomenstalk.com/quartz-nails-that-are-totally-rocking-the-internet-right-now/)
+- [summer nail polishes](https://nails.allwomenstalk.com/summer-nail-polishes-to-have-you-rocking-the-season-like-a-boss/)
+- [neutral nail polish color](https://nails.allwomenstalk.com/neutral-nail-colors-thatll-help-you-make-a-statement-while-remaining-professional/)
+- [best glitter nail polishes](https://nails.allwomenstalk.com/best-nail-polishes-for-new-years-eve/)
+- [weird nail trends](https://nails.allwomenstalk.com/nail-trends-skyrocketing-in-popularity-this-year/)
 - [nail inspos](https://nails.allwomenstalk.com/best-matte-manicure-inspiration/)
 - [9 Pretty Pink Nail Designs You Will Fawn over ...](https://nails.allwomenstalk.com/pretty-pink-nail-designs-you-will-fawn-over/)
 - [7 Gorgeous Blue Nail Designs to Sport This Season ...](https://nails.allwomenstalk.com/gorgeous-blue-nail-designs-to-sport-this-season/)
