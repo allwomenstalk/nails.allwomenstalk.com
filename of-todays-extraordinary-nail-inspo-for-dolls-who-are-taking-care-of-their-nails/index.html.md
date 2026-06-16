@@ -3,7 +3,7 @@ title: "18 of Today's Extraordinary Nail Inspo for Dolls Who Are Taking Care of 
 description: "@zoyanailpolish; @glistenandglow1; @whatsupnails; @bornprettystorenailart; @nailitmag; More ..."
 url: "https://nails.allwomenstalk.com/of-todays-extraordinary-nail-inspo-for-dolls-who-are-taking-care-of-their-nails/"
 category: "nails"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 18 of Today's Extraordinary Nail Inspo for Dolls Who Are Taking Care of Their Nails ...
@@ -52,16 +52,16 @@ Aren't these gorgeous? Tell us which ones you liked best! And if your fav nail a
 
 ## Related Posts
 
+- [french tip 3.5](https://nails.allwomenstalk.com/best-exotic-nails/)
+- [christmas nail stripes](https://nails.allwomenstalk.com/best-polished-nails/)
 - [76 Best Best Nails ...](https://nails.allwomenstalk.com/best-best-nails/)
+- [90 Best Chic Nails ...](https://nails.allwomenstalk.com/best-chic-nails/)
+- [long nails sharp](https://nails.allwomenstalk.com/best-long-nails/)
+- [96 Best Beauty Nails ...](https://nails.allwomenstalk.com/best-beauty-nails/)
 - [mani inspo](https://nails.allwomenstalk.com/of-todays-swoon-worthy-nail-inspo-for-mani-obsessed-people/)
 - [let's be friends dip](https://nails.allwomenstalk.com/best-gel-nails/)
-- [christmas nail stripes](https://nails.allwomenstalk.com/best-polished-nails/)
-- [french tip 3.5](https://nails.allwomenstalk.com/best-exotic-nails/)
-- [96 Best Beauty Nails ...](https://nails.allwomenstalk.com/best-beauty-nails/)
-- [pastel nails](https://nails.allwomenstalk.com/best-pastel-nails/)
-- [90 Best Chic Nails ...](https://nails.allwomenstalk.com/best-chic-nails/)
 - [tiffany blue nails](https://nails.allwomenstalk.com/best-blue-nails/)
-- [long nails sharp](https://nails.allwomenstalk.com/best-long-nails/)
+- [pastel nails](https://nails.allwomenstalk.com/best-pastel-nails/)
 - [18 of Today's Drool Worthy 🤤 Nail Inspo for Women...](https://nails.allwomenstalk.com/of-todays-drool-worthy-nail-inspo-for-women-who-love-new-nail-styles/)
 - [19 of Today's Awesome Nail Inspo for Women Who Wan...](https://nails.allwomenstalk.com/of-todays-awesome-nail-inspo-for-women-who-want-to-invest-in-their-look/)
 

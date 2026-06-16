@@ -3,7 +3,7 @@ title: "25 Glitter Polishes That Will Perfectly Match Any Holiday Outfit ..."
 description: "Marc Jacobs Beauty Nail Polish in Glinda; Diorific Vernis in State of Gold; Butter LONDON Nail Lacquer in Rosie Lee; Formula X Transformers Top Coats in Thunder; Ciaté London Mini Paint Pot Nail Polish and Effects in Risky Business; More ..."
 url: "https://nails.allwomenstalk.com/glitter-polishes-that-will-perfectly-match-any-holiday-outfit/"
 category: "nails"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 25 Glitter Polishes That Will Perfectly Match Any Holiday Outfit ...
@@ -188,15 +188,15 @@ If only our holiday could all be this brilliant.
 ## Related Posts
 
 - [funky nail polish](https://nails.allwomenstalk.com/use-these-funky-colors-to-give-your-nails-some-personality/)
-- [war nails](https://nails.allwomenstalk.com/awaken-the-force-with-star-wars-nail-art/)
-- [holly xmas nails](https://nails.allwomenstalk.com/apply-this-christmas-nail-art-before-your-holiday-party/)
-- [animal with nails](https://nails.allwomenstalk.com/show-off-your-wild-side-with-these-animal-print-nails/)
-- [paper nail ideas](https://nails.allwomenstalk.com/booksworms-will-love-this-newspaper-nail-art/)
-- [pearl white color nails](https://nails.allwomenstalk.com/pearl-nail-art-thatll-make-you-look-elegant-all-around/)
 - [winter nail art](https://nails.allwomenstalk.com/winter-nail-art-thats-gorgeous-and-glittery/)
+- [holly xmas nails](https://nails.allwomenstalk.com/apply-this-christmas-nail-art-before-your-holiday-party/)
 - [nail trends 2016](https://nails.allwomenstalk.com/these-are-the-hottest-nails-trends-for/)
-- [nail trend](https://nails.allwomenstalk.com/love-or-hate-the-nail-trends-of-that-divided-opinion/)
+- [animal with nails](https://nails.allwomenstalk.com/show-off-your-wild-side-with-these-animal-print-nails/)
+- [pearl white color nails](https://nails.allwomenstalk.com/pearl-nail-art-thatll-make-you-look-elegant-all-around/)
+- [paper nail ideas](https://nails.allwomenstalk.com/booksworms-will-love-this-newspaper-nail-art/)
 - [pink floyd nail designs](https://nails.allwomenstalk.com/youre-going-to-love-this-grunge-nail-art/)
+- [war nails](https://nails.allwomenstalk.com/awaken-the-force-with-star-wars-nail-art/)
+- [nail trend](https://nails.allwomenstalk.com/love-or-hate-the-nail-trends-of-that-divided-opinion/)
 - [7 Gorgeous Nail Polishes for Fall ...](https://allwomenstalk.com/7-gorgeous-nail-polishes-for-fall/)
 - [8 Perfect Nail Polishes for Fall ...](https://beauty.allwomenstalk.com/perfect-nail-polishes-for-fall/)
 

@@ -3,7 +3,7 @@ title: "7 Awesome China Glaze Nail Polishes You Should Get if You Can Find Them 
 description: "Sea Spray; White Cap; For Audrey; Galactic Gray; DV8; More ..."
 url: "https://nails.allwomenstalk.com/awesome-china-glazes-nail-polishes-you-should-get-if-you-can-find-them/"
 category: "nails"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 7 Awesome China Glaze Nail Polishes You Should Get if You Can Find Them ...
@@ -56,16 +56,16 @@ These are some of my favorite China Glaze shades and if you’re good at nail ar
 
 ## Related Posts
 
+- [best nail art youtube channels](https://nails.allwomenstalk.com/nail-art-vloggers-you-should-check-out/)
 - [decorative finger nails](https://beauty.allwomenstalk.com/fancy-nail-art-designs-that-youll-love-looking-at-all-day-long/)
+- [opi pops](https://makeup.allwomenstalk.com/opi-shades-to-make-your-nails-pop/)
 - [simple clear nail designs](https://nails.allwomenstalk.com/great-uses-for-clear-nail-polish-besides-your-nails/)
 - [pink nail polish color names](https://nails.allwomenstalk.com/gorgeous-nail-polish-colors-with-ridiculous-names/)
-- [best nail art youtube channels](https://nails.allwomenstalk.com/nail-art-vloggers-you-should-check-out/)
 - [adore gel polish](https://nails.allwomenstalk.com/dazzling-manicures-youll-absolutely-adore/)
-- [opi pops](https://makeup.allwomenstalk.com/opi-shades-to-make-your-nails-pop/)
+- [gel manicure designs short nails](https://nails.allwomenstalk.com/dynamic-looks-for-short-nails/)
+- [nail art pinterst](https://nails.allwomenstalk.com/must-follow-nail-art-pinterest-boards/)
 - [nail ideas for hawaii](https://nails.allwomenstalk.com/super-cute-ideas-for-summer-nail-art/)
 - [fun nails for summer](https://nails.allwomenstalk.com/fun-nail-patterns-for-summer/)
-- [nail art pinterst](https://nails.allwomenstalk.com/must-follow-nail-art-pinterest-boards/)
-- [gel manicure designs short nails](https://nails.allwomenstalk.com/dynamic-looks-for-short-nails/)
 - [7 Most Fashionable Nail Polishes of Today ...](https://allwomenstalk.com/7-most-fashionable-nail-polishes-of-today/)
 - [7 Glitter Nail Polishes ...](https://allwomenstalk.com/glitter-nail-polishes/)
 
