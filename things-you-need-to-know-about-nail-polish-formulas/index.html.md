@@ -42,16 +42,16 @@ There you go, ladies! These are some pretty useful yet still quite basic nail po
 
 ## Related Posts
 
-- [what food makes nails grow](https://food.allwomenstalk.com/superfoods-to-help-your-nails-grow/)
-- [brittle fingernails](https://nails.allwomenstalk.com/helpful-ways-you-can-strengthen-dry-and-brittle-nails/)
 - [how to get nail polish remover off skin](https://lifestyle.allwomenstalk.com/ways-to-use-nail-polish-remover/)
-- [how make nail polish last longer](https://nails.allwomenstalk.com/tips-on-how-to-make-nail-polish-stay-on-longer-2/)
-- [what are my fingernails made of](https://nails.allwomenstalk.com/things-you-should-know-about-your-nails/)
-- [fingernails half white half pink](https://nails.allwomenstalk.com/home-remedies-for-brittle-nails/)
-- [acrylic nail maintenance](https://beauty.allwomenstalk.com/ways-to-take-care-of-acrylic-nails/)
+- [brittle fingernails](https://nails.allwomenstalk.com/helpful-ways-you-can-strengthen-dry-and-brittle-nails/)
 - [finger nail nubs](https://nails.allwomenstalk.com/tips-to-stop-biting-your-nails-before-your-fingers-look-like-nubs/)
-- [nail colors for my skin tone](https://nails.allwomenstalk.com/tips-on-matching-nail-polish-color-with-your-skin-tone/)
+- [acrylic nail maintenance](https://beauty.allwomenstalk.com/ways-to-take-care-of-acrylic-nails/)
+- [how make nail polish last longer](https://nails.allwomenstalk.com/tips-on-how-to-make-nail-polish-stay-on-longer-2/)
+- [fingernails half white half pink](https://nails.allwomenstalk.com/home-remedies-for-brittle-nails/)
 - [how to get nail polish to dry quick](https://nails.allwomenstalk.com/helpful-tips-on-how-to-make-your-nails-dry-faster/)
+- [what food makes nails grow](https://food.allwomenstalk.com/superfoods-to-help-your-nails-grow/)
+- [what are my fingernails made of](https://nails.allwomenstalk.com/things-you-should-know-about-your-nails/)
+- [nail colors for my skin tone](https://nails.allwomenstalk.com/tips-on-matching-nail-polish-color-with-your-skin-tone/)
 - [8 Must Know Makeup Secrets ...](https://allwomenstalk.com/8-must-know-makeup-secrets/)
 - [7 Must-Know Tips for Choosing Makeup ...](https://makeup.allwomenstalk.com/must-know-tips-for-choosing-makeup/)
 

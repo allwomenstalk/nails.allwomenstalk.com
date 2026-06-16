@@ -46,16 +46,16 @@ Aren't these gorgeous? Tell us which ones you liked best! And if your fav nail a
 
 ## Related Posts
 
-- [julia berolzheimer weight loss](https://fashion.allwomenstalk.com/best-ootd-accounts-on-instagram/)
-- [dazzling nails](https://nails.allwomenstalk.com/of-todays-dazzling-nail-inspo-for-girls-desperate-for-a-new-look/)
 - [nail inspi](https://nails.allwomenstalk.com/of-todays-reliable-nail-inspo-every-woman-needs-right-now/)
-- [ootd inspo](https://fashion.allwomenstalk.com/of-todays-unbelievable-ootd-inspo-for-girls-wanting-to-be-best-dressed/)
+- [bad inspo](https://inspiration.allwomenstalk.com/of-todays-compelling-daily-inspo-for-girls-having-a-bad-day/)
+- [dazzling nails](https://nails.allwomenstalk.com/of-todays-dazzling-nail-inspo-for-girls-desperate-for-a-new-look/)
+- [inspo hairstyles](https://hair.allwomenstalk.com/of-todays-swoon-worthy-hair-inspo-for-girls-who-want-to-make-a-statement/)
 - [ootd rock](https://fashion.allwomenstalk.com/of-todays-drool-worthy-ootd-photos-for-girls-who-want-to-rock-the-ootd/)
 - [flower inspo](https://gardening.allwomenstalk.com/best-flower-accounts-on-instagram-3/)
-- [bad inspo](https://inspiration.allwomenstalk.com/of-todays-compelling-daily-inspo-for-girls-having-a-bad-day/)
-- [inspo hairstyles](https://hair.allwomenstalk.com/of-todays-swoon-worthy-hair-inspo-for-girls-who-want-to-make-a-statement/)
-- [cute hair inspo](https://hair.allwomenstalk.com/of-todays-dreamy-hair-inspo-to-wow-everyone/)
+- [julia berolzheimer weight loss](https://fashion.allwomenstalk.com/best-ootd-accounts-on-instagram/)
+- [ootd inspo](https://fashion.allwomenstalk.com/of-todays-unbelievable-ootd-inspo-for-girls-wanting-to-be-best-dressed/)
 - [ootd inspo](https://fashion.allwomenstalk.com/of-todays-delightful-ootd-inspo-for-girls-who-love-standing-out/)
+- [cute hair inspo](https://hair.allwomenstalk.com/of-todays-dreamy-hair-inspo-to-wow-everyone/)
 - [18 of Today's Drool Worthy 🤤 Nail Inspo for Women...](https://nails.allwomenstalk.com/of-todays-drool-worthy-nail-inspo-for-women-who-love-new-nail-styles/)
 - [19 of Today's Awesome Nail Inspo for Women Who Wan...](https://nails.allwomenstalk.com/of-todays-awesome-nail-inspo-for-women-who-want-to-invest-in-their-look/)
 

@@ -68,16 +68,16 @@ There are so many amazing top coats out there and they all offer such great bene
 
 ## Related Posts
 
-- [fresh nail designs](https://nails.allwomenstalk.com/fresh-nail-tutorials-for-easter/)
-- [cheapest nail polish brands](https://nails.allwomenstalk.com/bargain-nail-polish-brands-to-try-out/)
 - [punk rock nail designs](https://nails.allwomenstalk.com/grungy-nail-designs-that-are-too-hot-to-handle/)
-- [spring inspired nails](https://nails.allwomenstalk.com/fresh-spring-inspired-nail-tutorials/)
+- [edgy rock nails](https://nails.allwomenstalk.com/edgy-manicures-to-rock-on-your-first-date/)
+- [cheapest nail polish brands](https://nails.allwomenstalk.com/bargain-nail-polish-brands-to-try-out/)
+- [greyish purple nails](https://nails.allwomenstalk.com/nail-color-combinations-that-look-divine/)
 - [color riche smoky neon skirt](https://nails.allwomenstalk.com/new-essie-colors-you-must-try/)
 - [trendy nail designs for short nails](https://nails.allwomenstalk.com/trendy-nail-designs-for-short-nails/)
-- [i love me nails](https://nails.allwomenstalk.com/quirky-nail-designs-you-will-love/)
+- [spring inspired nails](https://nails.allwomenstalk.com/fresh-spring-inspired-nail-tutorials/)
 - [trendy nail colours](https://nails.allwomenstalk.com/trendy-nail-polish-colors-you-absolutely-must-try-now/)
-- [greyish purple nails](https://nails.allwomenstalk.com/nail-color-combinations-that-look-divine/)
-- [edgy rock nails](https://nails.allwomenstalk.com/edgy-manicures-to-rock-on-your-first-date/)
+- [fresh nail designs](https://nails.allwomenstalk.com/fresh-nail-tutorials-for-easter/)
+- [i love me nails](https://nails.allwomenstalk.com/quirky-nail-designs-you-will-love/)
 - [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
 - [10+ Most Fashionable Nail Polishes ...](https://allwomenstalk.com/most-fashionable-nail-polishes-top-7/)
 

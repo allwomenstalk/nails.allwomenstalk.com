@@ -80,16 +80,16 @@ Whether you’re celebrating a special occasion or just want to add some fun col
 
 ## Related Posts
 
-- [unique toe rings](https://jewelry.allwomenstalk.com/playful-toe-rings-that-will-perfect-your-pedicure/)
-- [nail ideas for 10 year olds](https://nails.allwomenstalk.com/intricate-nail-designs-to-rock-at-school/)
-- [glitter french tip pedicure](https://nails.allwomenstalk.com/tempting-french-manicure-variations-to-try-today/)
-- [zooey dechanel engagement ring](https://nails.allwomenstalk.com/electric-zooey-deschanel-inspired-nail-designs/)
-- [no design nails](https://nails.allwomenstalk.com/easy-nail-designs-and-art-for-amateurs/)
-- [nail polish double colour](https://nails.allwomenstalk.com/pretty-nail-polish-color-combinations-to-try/)
 - [manicure tutorials](https://nails.allwomenstalk.com/stylish-youtube-manicure-tutorials-to-watch-for-date-night/)
+- [unique toe rings](https://jewelry.allwomenstalk.com/playful-toe-rings-that-will-perfect-your-pedicure/)
+- [gothic red nails](https://nails.allwomenstalk.com/fierce-red-manicures-you-need-to-try/)
 - [blue nails with black designs](https://nails.allwomenstalk.com/gorgeous-blue-nail-designs-to-sport-this-season/)
 - [glitter pink nail designs](https://nails.allwomenstalk.com/pretty-pink-nail-designs-you-will-fawn-over/)
-- [gothic red nails](https://nails.allwomenstalk.com/fierce-red-manicures-you-need-to-try/)
+- [glitter french tip pedicure](https://nails.allwomenstalk.com/tempting-french-manicure-variations-to-try-today/)
+- [nail polish double colour](https://nails.allwomenstalk.com/pretty-nail-polish-color-combinations-to-try/)
+- [no design nails](https://nails.allwomenstalk.com/easy-nail-designs-and-art-for-amateurs/)
+- [zooey dechanel engagement ring](https://nails.allwomenstalk.com/electric-zooey-deschanel-inspired-nail-designs/)
+- [nail ideas for 10 year olds](https://nails.allwomenstalk.com/intricate-nail-designs-to-rock-at-school/)
 - [8 Neat Ways to Decorate Your Nails ...](https://makeup.allwomenstalk.com/8-neat-ways-to-decorate-your-nails/)
 - [8 Pretty Holiday Manicure and Pedicure ...](https://allwomenstalk.com/8-pretty-holiday-manicure-and-pedicure/)
 

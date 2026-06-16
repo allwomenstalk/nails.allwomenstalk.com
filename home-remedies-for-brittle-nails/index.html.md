@@ -78,16 +78,16 @@ This article was written in collaboration with editor Sabrina Yates.
 
 ## Related Posts
 
-- [superdrug nail strengthener](https://nails.allwomenstalk.com/nail-treatment-products-you-must-try-for-nail-and-nail-polish-problems/)
-- [how to increase nail strength](https://food.allwomenstalk.com/foods-that-strengthen-your-nails-and-how-to-add-them-to-your-diet/)
-- [how to hold yourself up with your hands](https://nails.allwomenstalk.com/ways-to-pamper-your-hands-and-improve-its-condition/)
-- [winter nail care tips](https://nails.allwomenstalk.com/essential-winter-nail-care-tips-to-know/)
-- [finger nail nubs](https://nails.allwomenstalk.com/tips-to-stop-biting-your-nails-before-your-fingers-look-like-nubs/)
-- [how make nail polish last longer](https://nails.allwomenstalk.com/tips-on-how-to-make-nail-polish-stay-on-longer-2/)
-- [brittle fingernails](https://nails.allwomenstalk.com/helpful-ways-you-can-strengthen-dry-and-brittle-nails/)
-- [how to get nail polish to dry quick](https://nails.allwomenstalk.com/helpful-tips-on-how-to-make-your-nails-dry-faster/)
 - [what are my fingernails made of](https://nails.allwomenstalk.com/things-you-should-know-about-your-nails/)
+- [how to increase nail strength](https://food.allwomenstalk.com/foods-that-strengthen-your-nails-and-how-to-add-them-to-your-diet/)
 - [tricks to stop biting your nails](https://nails.allwomenstalk.com/tips-on-how-to-stop-biting-your-nails/)
+- [how to get nail polish to dry quick](https://nails.allwomenstalk.com/helpful-tips-on-how-to-make-your-nails-dry-faster/)
+- [how to hold yourself up with your hands](https://nails.allwomenstalk.com/ways-to-pamper-your-hands-and-improve-its-condition/)
+- [finger nail nubs](https://nails.allwomenstalk.com/tips-to-stop-biting-your-nails-before-your-fingers-look-like-nubs/)
+- [superdrug nail strengthener](https://nails.allwomenstalk.com/nail-treatment-products-you-must-try-for-nail-and-nail-polish-problems/)
+- [winter nail care tips](https://nails.allwomenstalk.com/essential-winter-nail-care-tips-to-know/)
+- [brittle fingernails](https://nails.allwomenstalk.com/helpful-ways-you-can-strengthen-dry-and-brittle-nails/)
+- [how make nail polish last longer](https://nails.allwomenstalk.com/tips-on-how-to-make-nail-polish-stay-on-longer-2/)
 - [7 Tips on Maintaining Good Fingernails ...](https://allwomenstalk.com/7-tips-on-maintaining-good-fingernails/)
 - [7 Tips to Stop Biting Your Nails ...](https://allwomenstalk.com/7-tips-to-stop-biting-your-nails/)
 

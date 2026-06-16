@@ -43,15 +43,15 @@ I've gathered together quite the collection of nail pens with different sized ti
 ## Related Posts
 
 - [7 Foolproof Tips for Perfect Nail Decals Every Tim...](https://nails.allwomenstalk.com/tips-for-getting-your-nail-decals-just-right/)
-- [how to whiten nails](https://nails.allwomenstalk.com/whiten-your-discolored-nails-with-these-simple-home-remedies/)
 - [7 Ways to Care for Cracked Skin on Your Hands and ...](https://skincare.allwomenstalk.com/ways-to-care-for-cracked-skin-on-your-hands-and-feet/)
-- [7 Things You Need to Know about Gel Manicures ...](https://nails.allwomenstalk.com/things-you-need-to-know-about-gel-manicures/)
-- [7 Things Your Fingernails Are Telling You about Yo...](https://health.allwomenstalk.com/things-your-fingernails-are-telling-you-about-your-health/)
+- [No More Cracks: 7 Ways to Prep Your Feet for Sanda...](https://skincare.allwomenstalk.com/no-more-cracks-ways-to-prep-your-feet-for-sandal-season/)
 - [nails art tools](https://nails.allwomenstalk.com/tools-for-nail-art-you-probably-have-lying-around-the-house/)
 - [Here's How to Keep Your Nails in Perfect Condition...](https://nails.allwomenstalk.com/heres-how-to-keep-your-nails-in-perfect-condition/)
-- [do your own manicure](https://nails.allwomenstalk.com/steps-to-do-your-own-manicure/)
-- [No More Cracks: 7 Ways to Prep Your Feet for Sanda...](https://skincare.allwomenstalk.com/no-more-cracks-ways-to-prep-your-feet-for-sandal-season/)
 - [DIY Beauty: the Best Ways to Dry Nail Polish Quick...](https://nails.allwomenstalk.com/diy-beauty-the-best-ways-to-dry-nail-polish-quickly/)
+- [do your own manicure](https://nails.allwomenstalk.com/steps-to-do-your-own-manicure/)
+- [7 Things Your Fingernails Are Telling You about Yo...](https://health.allwomenstalk.com/things-your-fingernails-are-telling-you-about-your-health/)
+- [7 Things You Need to Know about Gel Manicures ...](https://nails.allwomenstalk.com/things-you-need-to-know-about-gel-manicures/)
+- [how to whiten nails](https://nails.allwomenstalk.com/whiten-your-discolored-nails-with-these-simple-home-remedies/)
 - [7 Tips for Achieving the Perfect at-Home French Ma...](https://beauty.allwomenstalk.com/tips-for-achieving-the-perfect-at-home-french-manicure/)
 - [11 Steps for a Perfect Home Made Manicure ...](https://allwomenstalk.com/manicure-tips/)
 

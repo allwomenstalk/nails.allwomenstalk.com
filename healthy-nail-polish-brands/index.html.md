@@ -40,16 +40,16 @@ Orly makes some really amazing permeable polishes that help your nails to breath
 
 ## Related Posts
 
-- [irresistible nails](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram-5/)
+- [dolls nails](https://nails.allwomenstalk.com/of-todays-mesmerizing-nail-inspo-for-confident-dolls/)
+- [fall season nail colors](https://nails.allwomenstalk.com/of-the-most-beautiful-fall-season-nail-polish-colors/)
 - [nauls inspo](https://nails.allwomenstalk.com/nail-inspiration-from-instagram/)
 - [natural nails inspo](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram-7/)
-- [nail inspi](https://nails.allwomenstalk.com/of-todays-brilliant-nail-inspo-for-girls-who-care-about-their-nails/)
-- [fall season nail colors](https://nails.allwomenstalk.com/of-the-most-beautiful-fall-season-nail-polish-colors/)
 - [easter nails different colors](https://nails.allwomenstalk.com/these-nail-art-patterns-will-make-your-easter-holiday-something-really-special/)
-- [dolls nails](https://nails.allwomenstalk.com/of-todays-mesmerizing-nail-inspo-for-confident-dolls/)
 - [negative space nail ideas](https://nails.allwomenstalk.com/negative-space-is-the-new-ig-hot-nail-trend/)
-- [acrylic nails vs dip](https://nails.allwomenstalk.com/gel-acrylic-or-dip-which-gives-the-best-nails/)
+- [nail inspi](https://nails.allwomenstalk.com/of-todays-brilliant-nail-inspo-for-girls-who-care-about-their-nails/)
 - [that girl nail inspo](https://nails.allwomenstalk.com/hottest-nail-inspiration-on-instagram/)
+- [acrylic nails vs dip](https://nails.allwomenstalk.com/gel-acrylic-or-dip-which-gives-the-best-nails/)
+- [irresistible nails](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram-5/)
 - [7 Most Fashionable Nail Polishes of Today ...](https://allwomenstalk.com/7-most-fashionable-nail-polishes-of-today/)
 - [Top 7 Nail Polish Brands ...](https://allwomenstalk.com/top-7-nail-polish-brands/)
 

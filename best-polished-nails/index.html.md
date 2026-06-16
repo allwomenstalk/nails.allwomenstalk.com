@@ -346,16 +346,16 @@ If you have a fear of feet, stop reading! Otherwise, continue on for some seriou
 
 ## Related Posts
 
-- [14 Flirty and Fun Nail Polishes to Sweep You Off Y...](https://nails.allwomenstalk.com/flirty-and-fun-nail-polishes-for-valentine/)
-- [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
 - [french tip 3.5](https://nails.allwomenstalk.com/best-exotic-nails/)
-- [90 Best Chic Nails ...](https://nails.allwomenstalk.com/best-chic-nails/)
-- [pastel nails](https://nails.allwomenstalk.com/best-pastel-nails/)
+- [14 Flirty and Fun Nail Polishes to Sweep You Off Y...](https://nails.allwomenstalk.com/flirty-and-fun-nail-polishes-for-valentine/)
 - [96 Best Beauty Nails ...](https://nails.allwomenstalk.com/best-beauty-nails/)
-- [hottest nail trends](https://beauty.allwomenstalk.com/hottest-nail-trends-for-fall/)
-- [76 Best Best Nails ...](https://nails.allwomenstalk.com/best-best-nails/)
-- [how to decorate your nails](https://makeup.allwomenstalk.com/8-neat-ways-to-decorate-your-nails/)
 - [sexy winter nails](https://nails.allwomenstalk.com/best-sexy-nails/)
+- [how to decorate your nails](https://makeup.allwomenstalk.com/8-neat-ways-to-decorate-your-nails/)
+- [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
+- [76 Best Best Nails ...](https://nails.allwomenstalk.com/best-best-nails/)
+- [hottest nail trends](https://beauty.allwomenstalk.com/hottest-nail-trends-for-fall/)
+- [pastel nails](https://nails.allwomenstalk.com/best-pastel-nails/)
+- [90 Best Chic Nails ...](https://nails.allwomenstalk.com/best-chic-nails/)
 - [30 Best Nails Etc ...](https://nails.allwomenstalk.com/best-nails-etc/)
 - [41 Best Sharp Nails ...](https://nails.allwomenstalk.com/best-sharp-nails/)
 

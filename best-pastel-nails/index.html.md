@@ -206,15 +206,15 @@ Easily one of the prettiest nail art designs would be the butterfly nails. They 
 
 ## Related Posts
 
-- [hottest nail trends](https://beauty.allwomenstalk.com/hottest-nail-trends-for-fall/)
 - [French Manicure](https://allwomenstalk.com/french-manicure/)
-- [instant manicure](https://allwomenstalk.com/avons-instant-manicure/)
-- [trending spring nail colors](https://makeup.allwomenstalk.com/on-trend-spring-nail-colors/)
 - [how to decorate your nails](https://makeup.allwomenstalk.com/8-neat-ways-to-decorate-your-nails/)
+- [bright nail colours](https://makeup.allwomenstalk.com/acid-bright-nail-polish-colors-to-try/)
+- [trending spring nail colors](https://makeup.allwomenstalk.com/on-trend-spring-nail-colors/)
 - [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
 - [sexy winter nails](https://nails.allwomenstalk.com/best-sexy-nails/)
 - [14 Flirty and Fun Nail Polishes to Sweep You Off Y...](https://nails.allwomenstalk.com/flirty-and-fun-nail-polishes-for-valentine/)
-- [bright nail colours](https://makeup.allwomenstalk.com/acid-bright-nail-polish-colors-to-try/)
+- [instant manicure](https://allwomenstalk.com/avons-instant-manicure/)
+- [hottest nail trends](https://beauty.allwomenstalk.com/hottest-nail-trends-for-fall/)
 - [90 Best Chic Nails ...](https://nails.allwomenstalk.com/best-chic-nails/)
 - [7 Lovely Pastel Nail Polishes for a Delicious Summ...](https://nails.allwomenstalk.com/lovely-pastel-nail-polishes-for-a-delicious-summer-manicure/)
 - [28 Super Cute Ideas for Summer Nail Art ...](https://nails.allwomenstalk.com/super-cute-ideas-for-summer-nail-art/)

@@ -252,16 +252,16 @@ Are you inspired? Which design do you want to try out today?
 
 ## Related Posts
 
-- [block nail art](https://nails.allwomenstalk.com/heres-how-to-take-the-color-blocking-trend-to-your-nails/)
-- [sparkly white toe nails](https://nails.allwomenstalk.com/rock-those-sandals-with-one-of-these-jaw-dropping-toe-nail-art-designs/)
-- [images of fall nail colors](https://nails.allwomenstalk.com/nail-colors-to-show-off-your-tan/)
-- [loreal color riche le stylo smoky shadow amber rus...](https://nails.allwomenstalk.com/summery-nail-polish-colors-for-the-season/)
 - [jamaican nail design ideas](https://nails.allwomenstalk.com/wait-until-you-see-these-outstanding-ways-to-do-geometric-nail-art/)
 - [white nails with blue rhinestones](https://nails.allwomenstalk.com/bling-bling-sparkling-ideas-for-using-rhinestones-on-your-nails/)
-- [lace manicure](https://nails.allwomenstalk.com/you-wont-believe-how-cool-it-is-to-wear-lace-on-your-nails/)
-- [nail decorating ideas](https://nails.allwomenstalk.com/nautical-nail-art-ideas-that-will-rock-your-world/)
+- [block nail art](https://nails.allwomenstalk.com/heres-how-to-take-the-color-blocking-trend-to-your-nails/)
 - [nails formal](https://nails.allwomenstalk.com/sophisticated-nail-art-for-when-you-need-to-look-amazing/)
+- [loreal color riche le stylo smoky shadow amber rus...](https://nails.allwomenstalk.com/summery-nail-polish-colors-for-the-season/)
+- [lace manicure](https://nails.allwomenstalk.com/you-wont-believe-how-cool-it-is-to-wear-lace-on-your-nails/)
+- [sparkly white toe nails](https://nails.allwomenstalk.com/rock-those-sandals-with-one-of-these-jaw-dropping-toe-nail-art-designs/)
+- [images of fall nail colors](https://nails.allwomenstalk.com/nail-colors-to-show-off-your-tan/)
 - [fourth of.july nails](https://nails.allwomenstalk.com/4th-of-july-nail-art-that-will-blow-your-mind/)
+- [nail decorating ideas](https://nails.allwomenstalk.com/nautical-nail-art-ideas-that-will-rock-your-world/)
 - [9 Awesome Nail Art Trends ...](https://makeup.allwomenstalk.com/awesome-nail-art-trends/)
 - [7 Lovely Pastel Nail Polishes for a Delicious Summ...](https://nails.allwomenstalk.com/lovely-pastel-nail-polishes-for-a-delicious-summer-manicure/)
 

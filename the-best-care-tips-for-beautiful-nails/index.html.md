@@ -32,16 +32,16 @@ No matter how tempting it is to pull and pick at the little pokey bits in your c
 
 ## Related Posts
 
-- [strong healthy nails](https://nails.allwomenstalk.com/how-to-make-your-nails-strong-and-healthy/)
 - [latina toes](https://beauty.allwomenstalk.com/nail-and-skin-tips-for-fabulous-feet/)
 - [good looking nails](https://nails.allwomenstalk.com/best-tips-for-classy-nails/)
-- [tips for healthy nails](https://nails.allwomenstalk.com/tips-for-healthy-nails/)
-- [different color blue nails](https://nails.allwomenstalk.com/easy-nail-care-tips/)
-- [is there an alternative to acrylic nails](https://nails.allwomenstalk.com/alternatives-to-acrylic-nails/)
 - [how to keep your nails long](https://nails.allwomenstalk.com/pro-tips-on-how-to-keep-your-nails-long-and-strong/)
+- [mascara nails](https://nails.allwomenstalk.com/nail-masks-for-healthy-nails/)
+- [strong healthy nails](https://nails.allwomenstalk.com/how-to-make-your-nails-strong-and-healthy/)
+- [is there an alternative to acrylic nails](https://nails.allwomenstalk.com/alternatives-to-acrylic-nails/)
 - [how to do your own manicure](https://nails.allwomenstalk.com/steps-to-the-perfect-at-home-manicure/)
 - [cracking of nails](https://nails.allwomenstalk.com/brilliant-ways-to-prevent-chipped-or-cracked-nail-polish/)
-- [mascara nails](https://nails.allwomenstalk.com/nail-masks-for-healthy-nails/)
+- [different color blue nails](https://nails.allwomenstalk.com/easy-nail-care-tips/)
+- [tips for healthy nails](https://nails.allwomenstalk.com/tips-for-healthy-nails/)
 - [8 Tips for Strong Fabulous Nails ...](https://beauty.allwomenstalk.com/tips-for-strong-fabulous-nails/)
 - [10 Tips for Spring Nails ...](https://allwomenstalk.com/10-tips-for-spring-nails/)
 

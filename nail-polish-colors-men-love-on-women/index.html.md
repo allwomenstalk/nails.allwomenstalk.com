@@ -84,16 +84,16 @@ This article was written in collaboration with editor Vanessa Salles.
 
 ## Related Posts
 
-- [riche stylo smoky eye garnet](https://nails.allwomenstalk.com/gorgeous-nail-polish-shades-for-autumn-that-your-nails-will-love/)
-- [purple toenails polish](https://nails.allwomenstalk.com/enchanting-purple-nail-polishes/)
 - [boyfriend nails](https://nails.allwomenstalk.com/of-katy-perrys-manicures-that-youll-love/)
-- [nails inc glowing out](https://nails.allwomenstalk.com/fun-and-innovative-nail-polishes-youll-want-to-try/)
-- [color riche le stylo blinged brilliant](https://nails.allwomenstalk.com/awesome-youtube-nail-tutorials-youve-got-to-try/)
-- [nail color for toes](https://nails.allwomenstalk.com/fabulous-pedicure-colors-for-fall-that-youll-be-happy-to-flaunt/)
-- [nail color for tropical vacation](https://nails.allwomenstalk.com/soft-nail-polish-shades-for-a-refreshing-new-look/)
-- [nail art design kits](https://nails.allwomenstalk.com/best-nail-art-kits-to-try-this-summer/)
+- [riche stylo smoky eye garnet](https://nails.allwomenstalk.com/gorgeous-nail-polish-shades-for-autumn-that-your-nails-will-love/)
 - [fall nails 2013](https://nails.allwomenstalk.com/on-trend-nail-polish-colours-for-fall/)
 - [essie raspberry red](https://nails.allwomenstalk.com/of-my-favorite-must-have-red-nail-polishes/)
+- [nail art design kits](https://nails.allwomenstalk.com/best-nail-art-kits-to-try-this-summer/)
+- [nail color for tropical vacation](https://nails.allwomenstalk.com/soft-nail-polish-shades-for-a-refreshing-new-look/)
+- [color riche le stylo blinged brilliant](https://nails.allwomenstalk.com/awesome-youtube-nail-tutorials-youve-got-to-try/)
+- [nail color for toes](https://nails.allwomenstalk.com/fabulous-pedicure-colors-for-fall-that-youll-be-happy-to-flaunt/)
+- [purple toenails polish](https://nails.allwomenstalk.com/enchanting-purple-nail-polishes/)
+- [nails inc glowing out](https://nails.allwomenstalk.com/fun-and-innovative-nail-polishes-youll-want-to-try/)
 - [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
 - [8 Acid Bright Nail Polish Colors to Try ...](https://makeup.allwomenstalk.com/acid-bright-nail-polish-colors-to-try/)
 

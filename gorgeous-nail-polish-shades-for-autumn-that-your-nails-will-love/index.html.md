@@ -56,16 +56,16 @@ These are 7 of my favorite nail polish shades for autumn – I’m a fan of purp
 
 ## Related Posts
 
-- [trendy fall nail polish colors](https://nails.allwomenstalk.com/trendy-nail-polish-colors-youll-enjoy-sporting-for-fall/)
 - [fall nails 2013](https://nails.allwomenstalk.com/on-trend-nail-polish-colours-for-fall/)
+- [trendy fall nail polish colors](https://nails.allwomenstalk.com/trendy-nail-polish-colors-youll-enjoy-sporting-for-fall/)
+- [color riche le stylo blinged brilliant](https://nails.allwomenstalk.com/awesome-youtube-nail-tutorials-youve-got-to-try/)
+- [magnetic nail polish](https://nails.allwomenstalk.com/unique-nail-colors-sure-to-get-attention/)
 - [essie raspberry red](https://nails.allwomenstalk.com/of-my-favorite-must-have-red-nail-polishes/)
 - [paris le stylo endless pearl](https://nails.allwomenstalk.com/most-creative-celebrity-nail-polish-designs/)
-- [nails inc glowing out](https://nails.allwomenstalk.com/fun-and-innovative-nail-polishes-youll-want-to-try/)
-- [color riche le stylo blinged brilliant](https://nails.allwomenstalk.com/awesome-youtube-nail-tutorials-youve-got-to-try/)
 - [best chip resistant nail polish](https://nails.allwomenstalk.com/great-budget-friendly-european-nail-polish-brands-to-get-acquainted-with/)
-- [boyfriend nails](https://nails.allwomenstalk.com/of-katy-perrys-manicures-that-youll-love/)
-- [magnetic nail polish](https://nails.allwomenstalk.com/unique-nail-colors-sure-to-get-attention/)
+- [nails inc glowing out](https://nails.allwomenstalk.com/fun-and-innovative-nail-polishes-youll-want-to-try/)
 - [fall nail polishes](https://nails.allwomenstalk.com/gorgeous-fall-nail-polishes-to-try-this-year/)
+- [boyfriend nails](https://nails.allwomenstalk.com/of-katy-perrys-manicures-that-youll-love/)
 - [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
 - [7 Gorgeous Nail Polishes for Fall ...](https://allwomenstalk.com/7-gorgeous-nail-polishes-for-fall/)
 

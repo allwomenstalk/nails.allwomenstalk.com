@@ -51,15 +51,15 @@ Clear nail polish is an amazing tool to have on hand at all times. From protecti
 ## Related Posts
 
 - [color riche le stylo smoky glistening garnet](https://nails.allwomenstalk.com/eclectic-nail-trends-to-try-this-summer/)
-- [sally hansen iridescent nail polish](https://nails.allwomenstalk.com/popular-nail-polishes-from-sally-hansen-you-should-have-in-your-collection/)
-- [pure ice nail polish](https://nails.allwomenstalk.com/fall-for-new-pure-ice-fall-nail-colors/)
-- [bunty's jewelers](https://nails.allwomenstalk.com/top-nail-trends-for-fall/)
-- [pastel french tips](https://nails.allwomenstalk.com/fabulous-french-tip-designs/)
-- [pedi colour](https://nails.allwomenstalk.com/magnificent-mani-pedi-color-pairings-to-make-you-smile/)
-- [essie terracotta nail polish](https://nails.allwomenstalk.com/show-stopping-shades-of-nail-polish-for-your-next-pedicure/)
-- [diy nails designs](https://nails.allwomenstalk.com/wicked-diy-nail-designs-for-the-back-to-school-season/)
-- [popular nail colors this fall](https://nails.allwomenstalk.com/crazy-awesome-nail-polish-colors-for-fall/)
 - [gucci red nail polish](https://nails.allwomenstalk.com/mani-mania-heres-guccis-fall-nail-polish-line/)
+- [pastel french tips](https://nails.allwomenstalk.com/fabulous-french-tip-designs/)
+- [diy nails designs](https://nails.allwomenstalk.com/wicked-diy-nail-designs-for-the-back-to-school-season/)
+- [pure ice nail polish](https://nails.allwomenstalk.com/fall-for-new-pure-ice-fall-nail-colors/)
+- [pedi colour](https://nails.allwomenstalk.com/magnificent-mani-pedi-color-pairings-to-make-you-smile/)
+- [popular nail colors this fall](https://nails.allwomenstalk.com/crazy-awesome-nail-polish-colors-for-fall/)
+- [sally hansen iridescent nail polish](https://nails.allwomenstalk.com/popular-nail-polishes-from-sally-hansen-you-should-have-in-your-collection/)
+- [essie terracotta nail polish](https://nails.allwomenstalk.com/show-stopping-shades-of-nail-polish-for-your-next-pedicure/)
+- [bunty's jewelers](https://nails.allwomenstalk.com/top-nail-trends-for-fall/)
 - [8 Tips for Fixing Those Nail Polish Disasters ...](https://makeup.allwomenstalk.com/tips-for-fixing-those-nail-polish-disasters/)
 - [7 Ways to Use Nail Polish Remover ...](https://lifestyle.allwomenstalk.com/ways-to-use-nail-polish-remover/)
 

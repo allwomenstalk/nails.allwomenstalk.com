@@ -56,16 +56,16 @@ Do you think there are other points of etiquette at the nail salon? What about t
 
 ## Related Posts
 
-- [at home pedicure steps](https://nails.allwomenstalk.com/steps-to-a-diy-pedicure/)
-- [why does my nail polish bubble after it dries](https://nails.allwomenstalk.com/things-you-should-know-about-cheap-vs-expensive-nail-polish/)
-- [epic nails](https://nails.allwomenstalk.com/nail-osophy-winterize-now-to-avoid-an-epic-nail-fail/)
-- [how to get perfect nails in 7 ways](https://lifestyle.allwomenstalk.com/ways-to-achieve-the-perfect-manicure/)
-- [how to get rid of nail polish on clothes](https://nails.allwomenstalk.com/ways-to-clean-up-nail-polish-without-remover/)
-- [How to Keep Your Next Mani Chip-Free ...](https://nails.allwomenstalk.com/tips-for-keeping-your-nails-chip-free/)
-- [how to do a perfect manicure](https://nails.allwomenstalk.com/you-must-see-these-tutorials-for-a-perfect-manicure/)
-- [steps in manicure](https://nails.allwomenstalk.com/steps-for-a-super-fast-manicure/)
 - [does hairspray dry nails](https://nails.allwomenstalk.com/things-that-will-instantly-ruin-your-manicure/)
+- [epic nails](https://nails.allwomenstalk.com/nail-osophy-winterize-now-to-avoid-an-epic-nail-fail/)
 - [nails of note flamingo square](https://nails.allwomenstalk.com/heres-how-to-wear-your-love-on-your-nails/)
+- [How to Keep Your Next Mani Chip-Free ...](https://nails.allwomenstalk.com/tips-for-keeping-your-nails-chip-free/)
+- [how to get rid of nail polish on clothes](https://nails.allwomenstalk.com/ways-to-clean-up-nail-polish-without-remover/)
+- [steps in manicure](https://nails.allwomenstalk.com/steps-for-a-super-fast-manicure/)
+- [how to do a perfect manicure](https://nails.allwomenstalk.com/you-must-see-these-tutorials-for-a-perfect-manicure/)
+- [why does my nail polish bubble after it dries](https://nails.allwomenstalk.com/things-you-should-know-about-cheap-vs-expensive-nail-polish/)
+- [how to get perfect nails in 7 ways](https://lifestyle.allwomenstalk.com/ways-to-achieve-the-perfect-manicure/)
+- [at home pedicure steps](https://nails.allwomenstalk.com/steps-to-a-diy-pedicure/)
 - [7 Necessary Rules of Theatre Etiquette ...](https://movies.allwomenstalk.com/necessary-rules-of-theatre-etiquette/)
 - [7 Rules for Cellphone Manners ...](https://gadgets.allwomenstalk.com/7-rules-for-cellphone-manners/)
 

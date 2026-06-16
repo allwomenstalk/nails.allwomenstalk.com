@@ -38,16 +38,16 @@ Squeeze ¼ lemon into 2 tsp of olive oil. Mix together. Keep nails in the mixtur
 
 ## Related Posts
 
-- [strong healthy nails](https://nails.allwomenstalk.com/how-to-make-your-nails-strong-and-healthy/)
-- [latina toes](https://beauty.allwomenstalk.com/nail-and-skin-tips-for-fabulous-feet/)
-- [how to keep your nails long](https://nails.allwomenstalk.com/pro-tips-on-how-to-keep-your-nails-long-and-strong/)
-- [tips for healthy nails](https://nails.allwomenstalk.com/tips-for-healthy-nails/)
-- [how to do your own manicure](https://nails.allwomenstalk.com/steps-to-the-perfect-at-home-manicure/)
 - [Take Care of Your Feet. a Pedicure How-to ...](https://allwomenstalk.com/take-care-of-your-feet-a-pedicure-how-to/)
 - [ts nail and spa](https://allwomenstalk.com/healthy-nail-dos-donts/)
-- [good looking nails](https://nails.allwomenstalk.com/best-tips-for-classy-nails/)
 - [Pedicure Safety Tips ...](https://allwomenstalk.com/pedicure-safety-tips/)
 - [cracking of nails](https://nails.allwomenstalk.com/brilliant-ways-to-prevent-chipped-or-cracked-nail-polish/)
+- [how to do your own manicure](https://nails.allwomenstalk.com/steps-to-the-perfect-at-home-manicure/)
+- [how to keep your nails long](https://nails.allwomenstalk.com/pro-tips-on-how-to-keep-your-nails-long-and-strong/)
+- [good looking nails](https://nails.allwomenstalk.com/best-tips-for-classy-nails/)
+- [strong healthy nails](https://nails.allwomenstalk.com/how-to-make-your-nails-strong-and-healthy/)
+- [latina toes](https://beauty.allwomenstalk.com/nail-and-skin-tips-for-fabulous-feet/)
+- [tips for healthy nails](https://nails.allwomenstalk.com/tips-for-healthy-nails/)
 - [8 Tips for Strong Fabulous Nails ...](https://beauty.allwomenstalk.com/tips-for-strong-fabulous-nails/)
 - [Hand Care Tips and Recipes ...](https://allwomenstalk.com/hand-care-tips-and-recipes/)
 

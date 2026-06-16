@@ -150,16 +150,16 @@ You're not too lazy for these are you? Which one is your favorite?
 
 ## Related Posts
 
-- [nars steven klein](https://nails.allwomenstalk.com/dark-nail-polish-colors-for-fall/)
-- [falls nail color](https://nails.allwomenstalk.com/berry-beautiful-nail-colors-for-fall/)
+- [stained glass nail designs](https://nails.allwomenstalk.com/see-why-shattered-glass-nails-are-the-next-big-trend/)
+- [sushi nail art](https://nails.allwomenstalk.com/celebrity-nail-art-you-should-try-to-copy/)
+- [how to do watercolor nails](https://nails.allwomenstalk.com/trending-now-watercolor-manicures/)
 - [nail polish dipped wire flowers](https://diy.allwomenstalk.com/use-nail-polish-to-add-gorgeous-marble-design-to-many-home-diy-projects/)
 - [short coffin halloween nail designs](https://nails.allwomenstalk.com/coffin-nail-art-to-keep-it-spooky-on-halloween/)
-- [how to do watercolor nails](https://nails.allwomenstalk.com/trending-now-watercolor-manicures/)
-- [pedicure halloween](https://nails.allwomenstalk.com/halloween-nail-art-to-pull-your-costume-together/)
-- [dior 209 mirror](https://nails.allwomenstalk.com/metallic-polishes-thatll-draw-attention-to-your-nails/)
-- [stained glass nail designs](https://nails.allwomenstalk.com/see-why-shattered-glass-nails-are-the-next-big-trend/)
 - [neutral colour nails](https://nails.allwomenstalk.com/nifty-neutral-nail-colors-for-fall/)
-- [sushi nail art](https://nails.allwomenstalk.com/celebrity-nail-art-you-should-try-to-copy/)
+- [falls nail color](https://nails.allwomenstalk.com/berry-beautiful-nail-colors-for-fall/)
+- [pedicure halloween](https://nails.allwomenstalk.com/halloween-nail-art-to-pull-your-costume-together/)
+- [nars steven klein](https://nails.allwomenstalk.com/dark-nail-polish-colors-for-fall/)
+- [dior 209 mirror](https://nails.allwomenstalk.com/metallic-polishes-thatll-draw-attention-to-your-nails/)
 - [9 Awesome Nail Art Trends ...](https://makeup.allwomenstalk.com/awesome-nail-art-trends/)
 - [8 DIY Nail Art Techniques to Try ...](https://makeup.allwomenstalk.com/diy-nail-art-techniques-to-try/)
 

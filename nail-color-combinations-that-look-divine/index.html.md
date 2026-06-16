@@ -56,16 +56,16 @@ What’s your favorite color combination on your nails? Have you given in to the
 
 ## Related Posts
 
-- [punk rock nail designs](https://nails.allwomenstalk.com/grungy-nail-designs-that-are-too-hot-to-handle/)
-- [pink nail polish color names](https://nails.allwomenstalk.com/gorgeous-nail-polish-colors-with-ridiculous-names/)
-- [china glaze polish colors](https://nails.allwomenstalk.com/awesome-china-glazes-nail-polishes-you-should-get-if-you-can-find-them/)
-- [cheapest nail polish brands](https://nails.allwomenstalk.com/bargain-nail-polish-brands-to-try-out/)
-- [fresh nail designs](https://nails.allwomenstalk.com/fresh-nail-tutorials-for-easter/)
-- [stylish manicure](https://nails.allwomenstalk.com/stylish-nail-tutorials-to-celebrate-your-anniversary/)
-- [trendy nail designs for short nails](https://nails.allwomenstalk.com/trendy-nail-designs-for-short-nails/)
 - [turquoise and blue nails](https://nails.allwomenstalk.com/turquoise-nail-polishes-to-shake-up-your-look/)
 - [i love me nails](https://nails.allwomenstalk.com/quirky-nail-designs-you-will-love/)
+- [pink nail polish color names](https://nails.allwomenstalk.com/gorgeous-nail-polish-colors-with-ridiculous-names/)
+- [china glaze polish colors](https://nails.allwomenstalk.com/awesome-china-glazes-nail-polishes-you-should-get-if-you-can-find-them/)
+- [fresh nail designs](https://nails.allwomenstalk.com/fresh-nail-tutorials-for-easter/)
+- [cheapest nail polish brands](https://nails.allwomenstalk.com/bargain-nail-polish-brands-to-try-out/)
+- [stylish manicure](https://nails.allwomenstalk.com/stylish-nail-tutorials-to-celebrate-your-anniversary/)
 - [color riche smoky neon skirt](https://nails.allwomenstalk.com/new-essie-colors-you-must-try/)
+- [punk rock nail designs](https://nails.allwomenstalk.com/grungy-nail-designs-that-are-too-hot-to-handle/)
+- [trendy nail designs for short nails](https://nails.allwomenstalk.com/trendy-nail-designs-for-short-nails/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [7 Nail Colors to Try …](https://allwomenstalk.com/nail-colors-to-try/)
 

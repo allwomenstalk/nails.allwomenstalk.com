@@ -68,16 +68,16 @@ What’s your usual nail shape? Is what was determined above true for you?
 
 ## Related Posts
 
-- [while analyzing sonia's features, you noticed that...](https://nails.allwomenstalk.com/how-to-create-fabulous-striped-nails-using-floss/)
-- [long exotic nails](https://nails.allwomenstalk.com/how-to-create-a-stella-mccartney-inspired-marble-manicure/)
+- [marbling nail polish](https://nails.allwomenstalk.com/tutorials-thatll-teach-you-how-to-make-marble-nail-art/)
 - [dark nail cuticles](https://skincare.allwomenstalk.com/these-things-are-damaging-your-cuticles/)
+- [while analyzing sonia's features, you noticed that...](https://nails.allwomenstalk.com/how-to-create-fabulous-striped-nails-using-floss/)
+- [at home gel polish peels off](https://nails.allwomenstalk.com/heres-how-to-use-peel-off-nail-polish-the-right-way/)
+- [long exotic nails](https://nails.allwomenstalk.com/how-to-create-a-stella-mccartney-inspired-marble-manicure/)
+- [how do i clean under my nails](https://nails.allwomenstalk.com/how-to-clean-underneath-your-nails/)
+- [manicure tools](https://nails.allwomenstalk.com/dont-give-yourself-a-manicure-without-these-tools/)
+- [how to make dots on nails without dotting tool](https://nails.allwomenstalk.com/how-to-make-your-own-nail-dotting-tool-with-household-items/)
 - [what does nails tell about your health](https://nails.allwomenstalk.com/things-your-fingernails-can-tell-you-about-your-health/)
 - [nails growth tips](https://nails.allwomenstalk.com/tips-to-growing-long-nails-fast/)
-- [manicure tools](https://nails.allwomenstalk.com/dont-give-yourself-a-manicure-without-these-tools/)
-- [marbling nail polish](https://nails.allwomenstalk.com/tutorials-thatll-teach-you-how-to-make-marble-nail-art/)
-- [how do i clean under my nails](https://nails.allwomenstalk.com/how-to-clean-underneath-your-nails/)
-- [how to make dots on nails without dotting tool](https://nails.allwomenstalk.com/how-to-make-your-own-nail-dotting-tool-with-household-items/)
-- [at home gel polish peels off](https://nails.allwomenstalk.com/heres-how-to-use-peel-off-nail-polish-the-right-way/)
 - [In a Nail Polishing Rut?](https://allwomenstalk.com/in-a-nail-polishing-rut/)
 - [Do You Bite Your Nails?](https://allwomenstalk.com/do-you-bite-your-nails/)
 

@@ -200,16 +200,16 @@ How often do you do nail art? Have you ever tried sea creatures? I bet you want 
 
 ## Related Posts
 
-- [red pink white nail designs](https://nails.allwomenstalk.com/here-are-the-coolest-polka-dot-nail-art-patterns-in-the-world/)
-- [marvel character with long nails](https://nails.allwomenstalk.com/these-are-the-best-looking-superhero-nail-art-designs-in-the-world/)
-- [southwestern nails](https://nails.allwomenstalk.com/wait-till-you-see-these-tribal-nail-art-patterns/)
-- [gelish nail polish ideas](https://nails.allwomenstalk.com/flirty-spring-nail-art-ideas-for-nail-polish-addicts/)
-- [art designs for nails](https://nails.allwomenstalk.com/this-is-what-striped-nail-art-looks-like-fabulous-ideas/)
 - [xmas nails](https://nails.allwomenstalk.com/spread-the-luck-nail-designs-for-st-patricks-day/)
 - [steampunk claws](https://nails.allwomenstalk.com/steampunk-nails-that-will-blow-your-mind/)
-- [one color nail inspo](https://nails.allwomenstalk.com/awesome-reasons-to-try-neon-nail-art/)
-- [easy do it yourself nail art](https://nails.allwomenstalk.com/easy-nail-art-designs-for-lazy-ladies/)
 - [shapes in polish](https://nails.allwomenstalk.com/make-your-polish-even-prettier-with-these-different-shapes-to-file-your-nails/)
+- [one color nail inspo](https://nails.allwomenstalk.com/awesome-reasons-to-try-neon-nail-art/)
+- [gelish nail polish ideas](https://nails.allwomenstalk.com/flirty-spring-nail-art-ideas-for-nail-polish-addicts/)
+- [easy do it yourself nail art](https://nails.allwomenstalk.com/easy-nail-art-designs-for-lazy-ladies/)
+- [red pink white nail designs](https://nails.allwomenstalk.com/here-are-the-coolest-polka-dot-nail-art-patterns-in-the-world/)
+- [art designs for nails](https://nails.allwomenstalk.com/this-is-what-striped-nail-art-looks-like-fabulous-ideas/)
+- [marvel character with long nails](https://nails.allwomenstalk.com/these-are-the-best-looking-superhero-nail-art-designs-in-the-world/)
+- [southwestern nails](https://nails.allwomenstalk.com/wait-till-you-see-these-tribal-nail-art-patterns/)
 - [24 Fancy Nail Art Designs That You'll Love Looking...](https://beauty.allwomenstalk.com/fancy-nail-art-designs-that-youll-love-looking-at-all-day-long/)
 - [28 Super Cute Ideas for Summer Nail Art ...](https://nails.allwomenstalk.com/super-cute-ideas-for-summer-nail-art/)
 

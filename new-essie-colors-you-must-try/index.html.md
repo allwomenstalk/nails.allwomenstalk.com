@@ -56,16 +56,16 @@ I was super excited to see that Target carries Essie nail polish! Which shade is
 
 ## Related Posts
 
-- [china glaze polish colors](https://nails.allwomenstalk.com/awesome-china-glazes-nail-polishes-you-should-get-if-you-can-find-them/)
-- [stylish manicure](https://nails.allwomenstalk.com/stylish-nail-tutorials-to-celebrate-your-anniversary/)
 - [adore gel polish](https://nails.allwomenstalk.com/dazzling-manicures-youll-absolutely-adore/)
+- [turquoise and blue nails](https://nails.allwomenstalk.com/turquoise-nail-polishes-to-shake-up-your-look/)
 - [best nail art youtube channels](https://nails.allwomenstalk.com/nail-art-vloggers-you-should-check-out/)
+- [pink nail polish color names](https://nails.allwomenstalk.com/gorgeous-nail-polish-colors-with-ridiculous-names/)
+- [stylish manicure](https://nails.allwomenstalk.com/stylish-nail-tutorials-to-celebrate-your-anniversary/)
+- [china glaze polish colors](https://nails.allwomenstalk.com/awesome-china-glazes-nail-polishes-you-should-get-if-you-can-find-them/)
+- [opi pops](https://makeup.allwomenstalk.com/opi-shades-to-make-your-nails-pop/)
 - [decorative finger nails](https://beauty.allwomenstalk.com/fancy-nail-art-designs-that-youll-love-looking-at-all-day-long/)
 - [fun nails for summer](https://nails.allwomenstalk.com/fun-nail-patterns-for-summer/)
-- [opi pops](https://makeup.allwomenstalk.com/opi-shades-to-make-your-nails-pop/)
-- [pink nail polish color names](https://nails.allwomenstalk.com/gorgeous-nail-polish-colors-with-ridiculous-names/)
 - [nail ideas for hawaii](https://nails.allwomenstalk.com/super-cute-ideas-for-summer-nail-art/)
-- [turquoise and blue nails](https://nails.allwomenstalk.com/turquoise-nail-polishes-to-shake-up-your-look/)
 - [7 Nail Colors to Try …](https://allwomenstalk.com/nail-colors-to-try/)
 - [7 Spring Nail Polish Collections You Shouldn't Mis...](https://nails.allwomenstalk.com/spring-nail-polish-collections-you-shouldnt-miss/)
 

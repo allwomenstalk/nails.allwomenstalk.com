@@ -141,16 +141,16 @@ Price: $8.00 at [sephora.com](http://www.sephora.com?ref=allwomenstalk.com)
 
 ## Related Posts
 
-- [candy cane nail designs](https://nails.allwomenstalk.com/dont-go-through-winter-without-trying-snow-nail-art/)
+- [red thanksgiving nails](https://nails.allwomenstalk.com/thanksgiving-nail-art-your-family-will-find-adorable/)
 - [sushi nail art](https://nails.allwomenstalk.com/celebrity-nail-art-you-should-try-to-copy/)
-- [dior 209 mirror](https://nails.allwomenstalk.com/metallic-polishes-thatll-draw-attention-to-your-nails/)
+- [dog with acrylic nails meme](https://nails.allwomenstalk.com/you-wont-believe-these-nails-inspired-by-popular-memes/)
 - [stained glass nail designs](https://nails.allwomenstalk.com/see-why-shattered-glass-nails-are-the-next-big-trend/)
+- [war nails](https://nails.allwomenstalk.com/awaken-the-force-with-star-wars-nail-art/)
+- [chanel solar nail polish](https://nails.allwomenstalk.com/glitter-polishes-that-will-perfectly-match-any-holiday-outfit/)
+- [dior 209 mirror](https://nails.allwomenstalk.com/metallic-polishes-thatll-draw-attention-to-your-nails/)
 - [feathers nails](https://nails.allwomenstalk.com/the-fiercest-feather-nail-art-youll-ever-see/)
 - [paris color stylo glistening](https://nails.allwomenstalk.com/iridescent-nail-inspiration-to-make-yourself-shimmer/)
-- [chanel solar nail polish](https://nails.allwomenstalk.com/glitter-polishes-that-will-perfectly-match-any-holiday-outfit/)
-- [war nails](https://nails.allwomenstalk.com/awaken-the-force-with-star-wars-nail-art/)
-- [dog with acrylic nails meme](https://nails.allwomenstalk.com/you-wont-believe-these-nails-inspired-by-popular-memes/)
-- [red thanksgiving nails](https://nails.allwomenstalk.com/thanksgiving-nail-art-your-family-will-find-adorable/)
+- [candy cane nail designs](https://nails.allwomenstalk.com/dont-go-through-winter-without-trying-snow-nail-art/)
 - [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
 - [7 Gorgeous Nail Polishes for Fall ...](https://allwomenstalk.com/7-gorgeous-nail-polishes-for-fall/)
 

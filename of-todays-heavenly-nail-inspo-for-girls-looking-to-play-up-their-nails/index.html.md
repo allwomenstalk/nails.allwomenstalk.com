@@ -51,15 +51,15 @@ Aren't these gorgeous? Tell us which ones you liked best! And if your fav nail a
 ## Related Posts
 
 - [loreal paris riche le stylo smoky eye golden](https://nails.allwomenstalk.com/of-todays-amazing-nail-inspo-for-women-who-really-know-beauty/)
-- [mani inspo](https://nails.allwomenstalk.com/of-todays-swoon-worthy-nail-inspo-for-mani-obsessed-people/)
-- [french tip 3.5](https://nails.allwomenstalk.com/best-exotic-nails/)
-- [tiffany blue nails](https://nails.allwomenstalk.com/best-blue-nails/)
-- [76 Best Best Nails ...](https://nails.allwomenstalk.com/best-best-nails/)
-- [let's be friends dip](https://nails.allwomenstalk.com/best-gel-nails/)
-- [christmas nail stripes](https://nails.allwomenstalk.com/best-polished-nails/)
 - [why does my nail polish have scratches](https://nails.allwomenstalk.com/of-todays-extraordinary-nail-inspo-for-dolls-who-are-taking-care-of-their-nails/)
 - [96 Best Beauty Nails ...](https://nails.allwomenstalk.com/best-beauty-nails/)
+- [mani inspo](https://nails.allwomenstalk.com/of-todays-swoon-worthy-nail-inspo-for-mani-obsessed-people/)
 - [long nails sharp](https://nails.allwomenstalk.com/best-long-nails/)
+- [french tip 3.5](https://nails.allwomenstalk.com/best-exotic-nails/)
+- [christmas nail stripes](https://nails.allwomenstalk.com/best-polished-nails/)
+- [76 Best Best Nails ...](https://nails.allwomenstalk.com/best-best-nails/)
+- [tiffany blue nails](https://nails.allwomenstalk.com/best-blue-nails/)
+- [let's be friends dip](https://nails.allwomenstalk.com/best-gel-nails/)
 - [19 of Today's Awesome Nail Inspo for Women Who Wan...](https://nails.allwomenstalk.com/of-todays-awesome-nail-inspo-for-women-who-want-to-invest-in-their-look/)
 - [22 of Today's Heavenly Nail Inspo for Girls Who Ar...](https://nails.allwomenstalk.com/of-todays-heavenly-nail-inspo-for-girls-who-are-always-on-trend/)
 

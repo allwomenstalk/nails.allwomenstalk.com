@@ -259,15 +259,15 @@ coral nails? Oh yeah. Try eating french fries with THOSE!!
 ## Related Posts
 
 - [sexy winter nails](https://nails.allwomenstalk.com/best-sexy-nails/)
-- [pastel nails](https://nails.allwomenstalk.com/best-pastel-nails/)
-- [90 Best Chic Nails ...](https://nails.allwomenstalk.com/best-chic-nails/)
-- [76 Best Best Nails ...](https://nails.allwomenstalk.com/best-best-nails/)
 - [christmas nail stripes](https://nails.allwomenstalk.com/best-polished-nails/)
+- [76 Best Best Nails ...](https://nails.allwomenstalk.com/best-best-nails/)
+- [90 Best Chic Nails ...](https://nails.allwomenstalk.com/best-chic-nails/)
+- [pastel nails](https://nails.allwomenstalk.com/best-pastel-nails/)
 - [96 Best Beauty Nails ...](https://nails.allwomenstalk.com/best-beauty-nails/)
+- [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
+- [french tip 3.5](https://nails.allwomenstalk.com/best-exotic-nails/)
 - [14 Flirty and Fun Nail Polishes to Sweep You Off Y...](https://nails.allwomenstalk.com/flirty-and-fun-nail-polishes-for-valentine/)
 - [how to decorate your nails](https://makeup.allwomenstalk.com/8-neat-ways-to-decorate-your-nails/)
-- [french tip 3.5](https://nails.allwomenstalk.com/best-exotic-nails/)
-- [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
 - [27 Stylish Stick on Nails ...](https://nails.allwomenstalk.com/stylish-stick-on-nails/)
 - [34 Dynamic Looks for Short Nails ...](https://nails.allwomenstalk.com/dynamic-looks-for-short-nails/)
 

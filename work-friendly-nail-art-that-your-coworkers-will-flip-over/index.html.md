@@ -80,16 +80,16 @@ Lately, I've been getting into manicures and keeping my nails beautiful. I do st
 
 ## Related Posts
 
-- [summer fingernail colors](https://nails.allwomenstalk.com/the-best-nail-colours-to-rock-in-summer/)
-- [converse heart nails](https://nails.allwomenstalk.com/pieces-of-nail-art-for-girls-who-are-short-on-time/)
-- [boston marathon nails](https://nails.allwomenstalk.com/breathtaking-nail-ideas-for-girls-who-need-serious-nail-inspo/)
-- [wedding nails for bridesmaids](https://nails.allwomenstalk.com/nail-art-for-girls-who-are-going-to-be-bridesmaids-soon/)
-- [grey nail color](https://nails.allwomenstalk.com/shades-of-grey-for-the-sexiest-nails-youve-ever-had/)
-- [summer red nails ideas](https://nails.allwomenstalk.com/summertime-nail-reds-for-girls-who-want-to-stand-out/)
-- [pedicure looks](https://nails.allwomenstalk.com/intense-pedicures-that-went-way-too-far/)
-- [fall colors for nail polish](https://nails.allwomenstalk.com/on-trend-pastel-nail-polishes-for-fall/)
-- [beachy colors for nails](https://nails.allwomenstalk.com/nail-colors-for-girls-who-spend-their-summer-at-the-beach/)
 - [nail designs toes](https://nails.allwomenstalk.com/the-best-toe-nail-art-to-wear-with-your-flip-flops/)
+- [fall colors for nail polish](https://nails.allwomenstalk.com/on-trend-pastel-nail-polishes-for-fall/)
+- [wedding nails for bridesmaids](https://nails.allwomenstalk.com/nail-art-for-girls-who-are-going-to-be-bridesmaids-soon/)
+- [converse heart nails](https://nails.allwomenstalk.com/pieces-of-nail-art-for-girls-who-are-short-on-time/)
+- [pedicure looks](https://nails.allwomenstalk.com/intense-pedicures-that-went-way-too-far/)
+- [beachy colors for nails](https://nails.allwomenstalk.com/nail-colors-for-girls-who-spend-their-summer-at-the-beach/)
+- [summer red nails ideas](https://nails.allwomenstalk.com/summertime-nail-reds-for-girls-who-want-to-stand-out/)
+- [summer fingernail colors](https://nails.allwomenstalk.com/the-best-nail-colours-to-rock-in-summer/)
+- [boston marathon nails](https://nails.allwomenstalk.com/breathtaking-nail-ideas-for-girls-who-need-serious-nail-inspo/)
+- [grey nail color](https://nails.allwomenstalk.com/shades-of-grey-for-the-sexiest-nails-youve-ever-had/)
 - [7 Trendy Nail Art Tutorials That Are Easy to Copy ...](https://nails.allwomenstalk.com/trendy-nail-art-tutorials-that-are-easy-to-copy/)
 - [Nail Art Tutorials for the Festive Season ...](https://nails.allwomenstalk.com/fabulously-festive-nail-art-tutorials/)
 

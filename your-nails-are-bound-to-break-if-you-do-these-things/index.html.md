@@ -42,16 +42,16 @@ What do you do when your nails break? What causes them to break?
 
 ## Related Posts
 
-- [natural white nail](https://nails.allwomenstalk.com/whimsical-tips-for-white-nails/)
-- [how to make nails pretty](https://nails.allwomenstalk.com/ways-to-pamper-your-nails-in-between-manicures/)
-- [what type of fake nails are the strongest](https://nails.allwomenstalk.com/which-type-of-false-nails-are-right-for-you/)
-- [does gel polish go bad](https://nails.allwomenstalk.com/most-women-dont-know-these-nail-polish-facts/)
 - [spiky fingernails](https://nails.allwomenstalk.com/signs-its-time-to-cut-your-nails-short/)
 - [how to stop a nail from splitting](https://nails.allwomenstalk.com/steps-to-stop-your-nails-from-splitting/)
+- [what type of fake nails are the strongest](https://nails.allwomenstalk.com/which-type-of-false-nails-are-right-for-you/)
 - [easy toothpick nail art](https://nails.allwomenstalk.com/nail-art-hacks-youll-be-glad-to-know/)
-- [easy at home french manicure](https://nails.allwomenstalk.com/how-to-create-the-perfect-french-manicure/)
 - [difficult nail art](https://nails.allwomenstalk.com/how-to-get-the-perfect-instagram-nail-shot/)
+- [does gel polish go bad](https://nails.allwomenstalk.com/most-women-dont-know-these-nail-polish-facts/)
 - [best products to strengthen nails](https://nails.allwomenstalk.com/the-secrets-to-strengthening-your-nails/)
+- [natural white nail](https://nails.allwomenstalk.com/whimsical-tips-for-white-nails/)
+- [easy at home french manicure](https://nails.allwomenstalk.com/how-to-create-the-perfect-french-manicure/)
+- [how to make nails pretty](https://nails.allwomenstalk.com/ways-to-pamper-your-nails-in-between-manicures/)
 - [Manicure ...](https://allwomenstalk.com/manicure/)
 - [10 Important Things You Should Know about Your Nai...](https://nails.allwomenstalk.com/things-you-should-know-about-your-nails/)
 

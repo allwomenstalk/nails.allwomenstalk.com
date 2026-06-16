@@ -267,16 +267,16 @@ I hope you got some ideas on how you'd like to rock your spring nails! Do you ha
 
 ## Related Posts
 
-- [red pink white nail designs](https://nails.allwomenstalk.com/here-are-the-coolest-polka-dot-nail-art-patterns-in-the-world/)
-- [arrow nail art](https://nails.allwomenstalk.com/hunger-games-fans-unite-of-the-coolest-nail-art-deisgns-ever/)
-- [southwestern nails](https://nails.allwomenstalk.com/wait-till-you-see-these-tribal-nail-art-patterns/)
 - [lilac short nail designs](https://nails.allwomenstalk.com/got-short-nails-here-are-the-nail-art-designs-youll-love/)
-- [summer easy nail art](https://nails.allwomenstalk.com/summer-gets-even-hotter-with-these-nail-art-ideas/)
-- [shapes in polish](https://nails.allwomenstalk.com/make-your-polish-even-prettier-with-these-different-shapes-to-file-your-nails/)
-- [xmas nails](https://nails.allwomenstalk.com/spread-the-luck-nail-designs-for-st-patricks-day/)
-- [dragon ball nail art](https://nails.allwomenstalk.com/the-best-dragon-nail-art-designs-in-the-whole-world/)
-- [easy do it yourself nail art](https://nails.allwomenstalk.com/easy-nail-art-designs-for-lazy-ladies/)
+- [southwestern nails](https://nails.allwomenstalk.com/wait-till-you-see-these-tribal-nail-art-patterns/)
 - [one color nail inspo](https://nails.allwomenstalk.com/awesome-reasons-to-try-neon-nail-art/)
+- [dragon ball nail art](https://nails.allwomenstalk.com/the-best-dragon-nail-art-designs-in-the-whole-world/)
+- [xmas nails](https://nails.allwomenstalk.com/spread-the-luck-nail-designs-for-st-patricks-day/)
+- [shapes in polish](https://nails.allwomenstalk.com/make-your-polish-even-prettier-with-these-different-shapes-to-file-your-nails/)
+- [arrow nail art](https://nails.allwomenstalk.com/hunger-games-fans-unite-of-the-coolest-nail-art-deisgns-ever/)
+- [easy do it yourself nail art](https://nails.allwomenstalk.com/easy-nail-art-designs-for-lazy-ladies/)
+- [red pink white nail designs](https://nails.allwomenstalk.com/here-are-the-coolest-polka-dot-nail-art-patterns-in-the-world/)
+- [summer easy nail art](https://nails.allwomenstalk.com/summer-gets-even-hotter-with-these-nail-art-ideas/)
 - [7 Flirty and Fun Nail Polishes for Valentine's Day...](https://nails.allwomenstalk.com/flirty-and-fun-nail-polishes-for-valentines-day/)
 - [21 Cute and Affordable Nail Polish Options ...](https://nails.allwomenstalk.com/cute-and-affordable-nail-polish-options/)
 

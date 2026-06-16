@@ -58,16 +58,16 @@ Do you have any of these nail troubles? What do you do about them?
 
 ## Related Posts
 
-- [at home gel polish peels off](https://nails.allwomenstalk.com/heres-how-to-use-peel-off-nail-polish-the-right-way/)
 - [marbling nail polish](https://nails.allwomenstalk.com/tutorials-thatll-teach-you-how-to-make-marble-nail-art/)
 - [how to make dots on nails without dotting tool](https://nails.allwomenstalk.com/how-to-make-your-own-nail-dotting-tool-with-household-items/)
-- [how do i clean under my nails](https://nails.allwomenstalk.com/how-to-clean-underneath-your-nails/)
-- [firefighter nail designs](https://nails.allwomenstalk.com/quick-tips-for-nail-care-and-polish/)
-- [while analyzing sonia's features, you noticed that...](https://nails.allwomenstalk.com/how-to-create-fabulous-striped-nails-using-floss/)
-- [long exotic nails](https://nails.allwomenstalk.com/how-to-create-a-stella-mccartney-inspired-marble-manicure/)
 - [your boyfriend no pay for gel](https://nails.allwomenstalk.com/how-to-create-a-gel-manicure-at-home/)
-- [loreal riche stylo eye blinged brilliant](https://nails.allwomenstalk.com/this-video-will-show-you-how-to-paint-your-nails-perfectly/)
+- [while analyzing sonia's features, you noticed that...](https://nails.allwomenstalk.com/how-to-create-fabulous-striped-nails-using-floss/)
 - [nails growth tips](https://nails.allwomenstalk.com/tips-to-growing-long-nails-fast/)
+- [how do i clean under my nails](https://nails.allwomenstalk.com/how-to-clean-underneath-your-nails/)
+- [at home gel polish peels off](https://nails.allwomenstalk.com/heres-how-to-use-peel-off-nail-polish-the-right-way/)
+- [long exotic nails](https://nails.allwomenstalk.com/how-to-create-a-stella-mccartney-inspired-marble-manicure/)
+- [loreal riche stylo eye blinged brilliant](https://nails.allwomenstalk.com/this-video-will-show-you-how-to-paint-your-nails-perfectly/)
+- [firefighter nail designs](https://nails.allwomenstalk.com/quick-tips-for-nail-care-and-polish/)
 - [7 Signs You're in Good Health ...](https://health.allwomenstalk.com/7-signs-youre-in-good-health/)
 - [5 Major Health Issues You Should Be Aware of ...](https://allwomenstalk.com/5-major-health-issues-you-should-be-aware-of/)
 

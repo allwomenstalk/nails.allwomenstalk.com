@@ -42,16 +42,16 @@ All you need for these tutorials is a toothpick, a dotter tool, a clear top coat
 
 ## Related Posts
 
-- [latest toenail colors](https://nails.allwomenstalk.com/best-toe-nail-polish-colors-to-wear-this-spring/)
 - [nails inc palace gardens](https://nails.allwomenstalk.com/top-nail-polishes-for-spring/)
-- [gold holographic nail polish](https://nails.allwomenstalk.com/holographic-nail-colors-you-must-check-out/)
 - [leather effect nail polish](https://nails.allwomenstalk.com/top-textured-nail-polishes/)
 - [uses of nail polish](https://makeup.allwomenstalk.com/uses-for-nail-polish/)
-- [chanel.nail polish](https://nails.allwomenstalk.com/budget-friendly-dupes-for-the-most-coveted-high-end-nail-polishes/)
-- [fun nail](https://nails.allwomenstalk.com/fun-nail-polish-combinations-to-try-this-spring/)
 - [nails colours 2023](https://nails.allwomenstalk.com/nail-polish-colors-men-love-on-women/)
+- [chanel.nail polish](https://nails.allwomenstalk.com/budget-friendly-dupes-for-the-most-coveted-high-end-nail-polishes/)
+- [gold holographic nail polish](https://nails.allwomenstalk.com/holographic-nail-colors-you-must-check-out/)
 - [nail art design kits](https://nails.allwomenstalk.com/best-nail-art-kits-to-try-this-summer/)
 - [best nail color for everyday](https://nails.allwomenstalk.com/colors-you-need-to-start-a-nail-polish-collection/)
+- [latest toenail colors](https://nails.allwomenstalk.com/best-toe-nail-polish-colors-to-wear-this-spring/)
+- [fun nail](https://nails.allwomenstalk.com/fun-nail-polish-combinations-to-try-this-spring/)
 - [7 Best Blogs on Nail Art ...](https://allwomenstalk.com/best-blogs-on-nail-art/)
 - [9 Awesome Nail Art Trends ...](https://makeup.allwomenstalk.com/awesome-nail-art-trends/)
 

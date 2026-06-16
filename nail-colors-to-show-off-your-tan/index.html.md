@@ -56,16 +56,16 @@ Remember that a summer glow should be from a bottle and not the sun or the tanni
 
 ## Related Posts
 
-- [pretty girls nails](https://nails.allwomenstalk.com/youll-scream-for-these-ice-cream-colored-nails/)
-- [pedicure style](https://nails.allwomenstalk.com/fun-summer-pedicure-ideas-to-make-your-feet-stand-out/)
-- [violet nails design](https://nails.allwomenstalk.com/metallic-nail-art-ideas-that-will-rock-your-world/)
-- [vacations nails](https://nails.allwomenstalk.com/check-out-this-superb-travel-nail-art-to-do-for-your-vacation/)
 - [essie blood red nail polish](https://nails.allwomenstalk.com/heres-how-to-nail-the-red-polish-look-for-this-summer/)
 - [butter nail polish hen party](https://nails.allwomenstalk.com/you-should-go-nude-in-these-nude-nail-polishes-for-summer/)
-- [nail color summer](https://nails.allwomenstalk.com/matte-nail-polish-colors-to-spring-for-this-summer/)
-- [cute nail cartoon](https://nails.allwomenstalk.com/really-cool-manga-nails-for-the-comic-book-lover-in-you/)
 - [nail inspos](https://nails.allwomenstalk.com/check-out-this-new-nail-trend-the-bubble-manicure/)
+- [violet nails design](https://nails.allwomenstalk.com/metallic-nail-art-ideas-that-will-rock-your-world/)
+- [pedicure style](https://nails.allwomenstalk.com/fun-summer-pedicure-ideas-to-make-your-feet-stand-out/)
 - [billie eilish nails design](https://nails.allwomenstalk.com/awesome-80s-nail-art-that-will-take-you-back-to-another-era/)
+- [pretty girls nails](https://nails.allwomenstalk.com/youll-scream-for-these-ice-cream-colored-nails/)
+- [cute nail cartoon](https://nails.allwomenstalk.com/really-cool-manga-nails-for-the-comic-book-lover-in-you/)
+- [vacations nails](https://nails.allwomenstalk.com/check-out-this-superb-travel-nail-art-to-do-for-your-vacation/)
+- [nail color summer](https://nails.allwomenstalk.com/matte-nail-polish-colors-to-spring-for-this-summer/)
 - [7 Must Have Polish Colors for Summer's Bare Toes ....](https://allwomenstalk.com/must-have-polish-colors-for-summers-bare-toes/)
 - [8 Fun Nail Polish Trends for Summer ...](https://makeup.allwomenstalk.com/fun-nail-polish-trends-for-summer/)
 

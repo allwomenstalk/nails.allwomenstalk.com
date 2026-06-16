@@ -57,15 +57,15 @@ So now you can easily update your wardrobe with some simple, yet fabulous new na
 ## Related Posts
 
 - [easy spring nails](https://nails.allwomenstalk.com/easy-nail-ideas-for-spring/)
-- [zoya hudson](https://nails.allwomenstalk.com/trendy-nail-polishes-to-wear-for-springsummer/)
-- [15 Pink Polishes That Are Perfect for a Valentine'...](https://nails.allwomenstalk.com/pink-polishes-that-are-perfect-for-a-valentines-day-date/)
-- [nails with words on them](https://nails.allwomenstalk.com/stylish-stick-on-nails/)
-- [short nail art inspo](https://nails.allwomenstalk.com/you-need-to-try-this-nail-art-for-short-nails/)
-- [The Most Creative Uses for Nail Polish You'll Ever...](https://nails.allwomenstalk.com/creative-uses-for-nail-polish/)
-- [nail art tool kit](https://nails.allwomenstalk.com/nail-tools-for-the-best-manicures-and-nail-art/)
 - [15 Nail Colors to Add to Your Wardrobe This Spring...](https://nails.allwomenstalk.com/nail-colors-to-add-to-your-wardrobe-this-spring/)
-- [color riche le smoky bottomless java](https://nails.allwomenstalk.com/which-nail-design-is-perfect-for-you/)
+- [zoya hudson](https://nails.allwomenstalk.com/trendy-nail-polishes-to-wear-for-springsummer/)
+- [nail art tool kit](https://nails.allwomenstalk.com/nail-tools-for-the-best-manicures-and-nail-art/)
+- [nails with words on them](https://nails.allwomenstalk.com/stylish-stick-on-nails/)
+- [The Most Creative Uses for Nail Polish You'll Ever...](https://nails.allwomenstalk.com/creative-uses-for-nail-polish/)
+- [15 Pink Polishes That Are Perfect for a Valentine'...](https://nails.allwomenstalk.com/pink-polishes-that-are-perfect-for-a-valentines-day-date/)
 - [Fall's Must-Have Nail Polish & Watch Combos ...](https://beauty.allwomenstalk.com/falls-must-have-nail-polish-watch-combos/)
+- [short nail art inspo](https://nails.allwomenstalk.com/you-need-to-try-this-nail-art-for-short-nails/)
+- [color riche le smoky bottomless java](https://nails.allwomenstalk.com/which-nail-design-is-perfect-for-you/)
 - [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
 - [8 Fab Nails Colors for Summer 2012 ...](https://makeup.allwomenstalk.com/fab-nails-colors-for-summer/)
 

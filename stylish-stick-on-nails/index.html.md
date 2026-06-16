@@ -187,16 +187,16 @@ I certainly prefer stick on nails over traditional manicures, but not everyone r
 
 ## Related Posts
 
-- [The Most Creative Uses for Nail Polish You'll Ever...](https://nails.allwomenstalk.com/creative-uses-for-nail-polish/)
-- [color riche le smoky bottomless java](https://nails.allwomenstalk.com/which-nail-design-is-perfect-for-you/)
-- [sally hansen miracle gel fall colors](https://nails.allwomenstalk.com/nail-colors-for-fall/)
-- [These Nails Will Push You to Get a Next-Level Mani...](https://nails.allwomenstalk.com/these-nails-will-push-you-to-get-a-next-level-manicure/)
-- [Fall's Must-Have Nail Polish & Watch Combos ...](https://beauty.allwomenstalk.com/falls-must-have-nail-polish-watch-combos/)
-- [short nail art inspo](https://nails.allwomenstalk.com/you-need-to-try-this-nail-art-for-short-nails/)
-- [nail art tool kit](https://nails.allwomenstalk.com/nail-tools-for-the-best-manicures-and-nail-art/)
-- [15 Pink Polishes That Are Perfect for a Valentine'...](https://nails.allwomenstalk.com/pink-polishes-that-are-perfect-for-a-valentines-day-date/)
 - [today's inspo](https://nails.allwomenstalk.com/instagram-nail-accounts-you-should-follow/)
+- [color riche le smoky bottomless java](https://nails.allwomenstalk.com/which-nail-design-is-perfect-for-you/)
+- [The Most Creative Uses for Nail Polish You'll Ever...](https://nails.allwomenstalk.com/creative-uses-for-nail-polish/)
+- [These Nails Will Push You to Get a Next-Level Mani...](https://nails.allwomenstalk.com/these-nails-will-push-you-to-get-a-next-level-manicure/)
+- [15 Pink Polishes That Are Perfect for a Valentine'...](https://nails.allwomenstalk.com/pink-polishes-that-are-perfect-for-a-valentines-day-date/)
+- [short nail art inspo](https://nails.allwomenstalk.com/you-need-to-try-this-nail-art-for-short-nails/)
 - [15 Nail Colors to Add to Your Wardrobe This Spring...](https://nails.allwomenstalk.com/nail-colors-to-add-to-your-wardrobe-this-spring/)
+- [nail art tool kit](https://nails.allwomenstalk.com/nail-tools-for-the-best-manicures-and-nail-art/)
+- [sally hansen miracle gel fall colors](https://nails.allwomenstalk.com/nail-colors-for-fall/)
+- [Fall's Must-Have Nail Polish & Watch Combos ...](https://beauty.allwomenstalk.com/falls-must-have-nail-polish-watch-combos/)
 - [7 Best Nail Art Decals ...](https://nails.allwomenstalk.com/best-nail-art-decals/)
 - [21 Cute and Affordable Nail Polish Options ...](https://nails.allwomenstalk.com/cute-and-affordable-nail-polish-options/)
 

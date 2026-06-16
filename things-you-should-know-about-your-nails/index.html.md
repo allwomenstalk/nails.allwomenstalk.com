@@ -77,16 +77,16 @@ Have these things you should know about your nails helped you to make some chang
 
 ## Related Posts
 
-- [how to get nail polish to dry quick](https://nails.allwomenstalk.com/helpful-tips-on-how-to-make-your-nails-dry-faster/)
+- [how to increase nail strength](https://food.allwomenstalk.com/foods-that-strengthen-your-nails-and-how-to-add-them-to-your-diet/)
 - [brittle fingernails](https://nails.allwomenstalk.com/helpful-ways-you-can-strengthen-dry-and-brittle-nails/)
-- [how make nail polish last longer](https://nails.allwomenstalk.com/tips-on-how-to-make-nail-polish-stay-on-longer-2/)
 - [finger nail nubs](https://nails.allwomenstalk.com/tips-to-stop-biting-your-nails-before-your-fingers-look-like-nubs/)
+- [how make nail polish last longer](https://nails.allwomenstalk.com/tips-on-how-to-make-nail-polish-stay-on-longer-2/)
 - [how to take care of hands and nails at home](https://nails.allwomenstalk.com/care-tips-for-perfectly-groomed-hands-and-nails/)
+- [how to get nail polish to dry quick](https://nails.allwomenstalk.com/helpful-tips-on-how-to-make-your-nails-dry-faster/)
 - [how to hold yourself up with your hands](https://nails.allwomenstalk.com/ways-to-pamper-your-hands-and-improve-its-condition/)
+- [winter nail care tips](https://nails.allwomenstalk.com/essential-winter-nail-care-tips-to-know/)
 - [superdrug nail strengthener](https://nails.allwomenstalk.com/nail-treatment-products-you-must-try-for-nail-and-nail-polish-problems/)
 - [tricks to stop biting your nails](https://nails.allwomenstalk.com/tips-on-how-to-stop-biting-your-nails/)
-- [winter nail care tips](https://nails.allwomenstalk.com/essential-winter-nail-care-tips-to-know/)
-- [how to increase nail strength](https://food.allwomenstalk.com/foods-that-strengthen-your-nails-and-how-to-add-them-to-your-diet/)
 - [7 Tips for Taking Care of Your Cuticles ...](https://skincare.allwomenstalk.com/tips-for-taking-care-of-your-cuticles/)
 - [7 Tips on Maintaining Good Fingernails ...](https://allwomenstalk.com/7-tips-on-maintaining-good-fingernails/)
 

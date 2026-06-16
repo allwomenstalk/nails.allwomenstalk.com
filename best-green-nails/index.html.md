@@ -436,16 +436,16 @@ Negative space nails in mint green! At Charlotte Ronson: http://beautyeditor.ca/
 
 ## Related Posts
 
-- [light pink tips nails](https://nails.allwomenstalk.com/best-light-pink-nails/)
-- [intitle:best "gel nail polish"](https://nails.allwomenstalk.com/best-pinterest-nails/)
-- [how to get perfect nails in 7 ways](https://nails.allwomenstalk.com/best-perfect-nails/)
-- [what time does fashion nails open](https://nails.allwomenstalk.com/best-fashion-nails/)
 - [elegant nail art designs](https://nails.allwomenstalk.com/best-elegant-nails/)
 - [top.modern nails](https://nails.allwomenstalk.com/best-modern-nails/)
-- [squared nails](https://nails.allwomenstalk.com/best-squared-short-nails/)
 - [sky nails design](https://nails.allwomenstalk.com/best-sky-nails/)
+- [how to get perfect nails in 7 ways](https://nails.allwomenstalk.com/best-perfect-nails/)
+- [light pink tips nails](https://nails.allwomenstalk.com/best-light-pink-nails/)
 - [halloween shellac nails](https://nails.allwomenstalk.com/best-shellac-nails/)
+- [squared nails](https://nails.allwomenstalk.com/best-squared-short-nails/)
 - [nail type names](https://nails.allwomenstalk.com/best-unique-nails/)
+- [intitle:best "gel nail polish"](https://nails.allwomenstalk.com/best-pinterest-nails/)
+- [what time does fashion nails open](https://nails.allwomenstalk.com/best-fashion-nails/)
 - [7 Mint Green Nail Polishes ...](https://allwomenstalk.com/mint-green-nail-polishes/)
 - [96 Best Gel Nails ...](https://nails.allwomenstalk.com/best-gel-nails/)
 

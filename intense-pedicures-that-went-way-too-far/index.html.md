@@ -118,16 +118,16 @@ I can't get over the bubble nails. They look weird enough on fingernails, but th
 
 ## Related Posts
 
-- [fall beach nails](https://nails.allwomenstalk.com/best-nail-colors-for-fall-for-girls-who-love-a-fresh-mani/)
-- [autumn nails](https://nails.allwomenstalk.com/on-point-fall-nail-polish-trends-you-must-see/)
-- [boston marathon nails](https://nails.allwomenstalk.com/breathtaking-nail-ideas-for-girls-who-need-serious-nail-inspo/)
 - [beachy colors for nails](https://nails.allwomenstalk.com/nail-colors-for-girls-who-spend-their-summer-at-the-beach/)
+- [summer red nails ideas](https://nails.allwomenstalk.com/summertime-nail-reds-for-girls-who-want-to-stand-out/)
 - [grey nail color](https://nails.allwomenstalk.com/shades-of-grey-for-the-sexiest-nails-youve-ever-had/)
+- [fall beach nails](https://nails.allwomenstalk.com/best-nail-colors-for-fall-for-girls-who-love-a-fresh-mani/)
+- [nails contour](https://nails.allwomenstalk.com/nail-contouring-is-the-latest-art-you-need-to-learn-asap/)
 - [fall colors for nail polish](https://nails.allwomenstalk.com/on-trend-pastel-nail-polishes-for-fall/)
 - [simple line nail designs](https://nails.allwomenstalk.com/follow-these-ig-accounts-if-you-love-yourself-some-nail-art/)
-- [summer red nails ideas](https://nails.allwomenstalk.com/summertime-nail-reds-for-girls-who-want-to-stand-out/)
-- [nails contour](https://nails.allwomenstalk.com/nail-contouring-is-the-latest-art-you-need-to-learn-asap/)
 - [summer fingernail colors](https://nails.allwomenstalk.com/the-best-nail-colours-to-rock-in-summer/)
+- [autumn nails](https://nails.allwomenstalk.com/on-point-fall-nail-polish-trends-you-must-see/)
+- [boston marathon nails](https://nails.allwomenstalk.com/breathtaking-nail-ideas-for-girls-who-need-serious-nail-inspo/)
 - [8 Pretty Holiday Manicure and Pedicure ...](https://allwomenstalk.com/8-pretty-holiday-manicure-and-pedicure/)
 - [7 Fun and Innovative Nail Polishes You'll Want to ...](https://nails.allwomenstalk.com/fun-and-innovative-nail-polishes-youll-want-to-try/)
 

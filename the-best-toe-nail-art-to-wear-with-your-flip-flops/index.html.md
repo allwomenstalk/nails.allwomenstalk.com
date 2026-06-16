@@ -42,16 +42,16 @@ You can try all of these fun toenail art ideas this spring! What color are your 
 
 ## Related Posts
 
-- [converse heart nails](https://nails.allwomenstalk.com/pieces-of-nail-art-for-girls-who-are-short-on-time/)
-- [summer fingernail colors](https://nails.allwomenstalk.com/the-best-nail-colours-to-rock-in-summer/)
-- [fall colors for nail polish](https://nails.allwomenstalk.com/on-trend-pastel-nail-polishes-for-fall/)
-- [autumn nails](https://nails.allwomenstalk.com/on-point-fall-nail-polish-trends-you-must-see/)
-- [pedicure looks](https://nails.allwomenstalk.com/intense-pedicures-that-went-way-too-far/)
-- [summer red nails ideas](https://nails.allwomenstalk.com/summertime-nail-reds-for-girls-who-want-to-stand-out/)
-- [wedding nails for bridesmaids](https://nails.allwomenstalk.com/nail-art-for-girls-who-are-going-to-be-bridesmaids-soon/)
-- [grey nail color](https://nails.allwomenstalk.com/shades-of-grey-for-the-sexiest-nails-youve-ever-had/)
 - [beachy colors for nails](https://nails.allwomenstalk.com/nail-colors-for-girls-who-spend-their-summer-at-the-beach/)
+- [pedicure looks](https://nails.allwomenstalk.com/intense-pedicures-that-went-way-too-far/)
+- [summer fingernail colors](https://nails.allwomenstalk.com/the-best-nail-colours-to-rock-in-summer/)
+- [grey nail color](https://nails.allwomenstalk.com/shades-of-grey-for-the-sexiest-nails-youve-ever-had/)
+- [summer red nails ideas](https://nails.allwomenstalk.com/summertime-nail-reds-for-girls-who-want-to-stand-out/)
 - [boston marathon nails](https://nails.allwomenstalk.com/breathtaking-nail-ideas-for-girls-who-need-serious-nail-inspo/)
+- [autumn nails](https://nails.allwomenstalk.com/on-point-fall-nail-polish-trends-you-must-see/)
+- [converse heart nails](https://nails.allwomenstalk.com/pieces-of-nail-art-for-girls-who-are-short-on-time/)
+- [wedding nails for bridesmaids](https://nails.allwomenstalk.com/nail-art-for-girls-who-are-going-to-be-bridesmaids-soon/)
+- [fall colors for nail polish](https://nails.allwomenstalk.com/on-trend-pastel-nail-polishes-for-fall/)
 - [7 Gorgeous Blue Nail Designs to Sport This Season ...](https://nails.allwomenstalk.com/gorgeous-blue-nail-designs-to-sport-this-season/)
 - [9 Trendy Nail Polishes to Wear for Spring/Summer ....](https://nails.allwomenstalk.com/trendy-nail-polishes-to-wear-for-springsummer/)
 

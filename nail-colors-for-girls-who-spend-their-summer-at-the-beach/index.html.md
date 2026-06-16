@@ -84,16 +84,16 @@ Which one is your favorite? Which beach do you plan to be lounging on this summe
 
 ## Related Posts
 
-- [summer fingernail colors](https://nails.allwomenstalk.com/the-best-nail-colours-to-rock-in-summer/)
-- [fall colors for nail polish](https://nails.allwomenstalk.com/on-trend-pastel-nail-polishes-for-fall/)
-- [nails contour](https://nails.allwomenstalk.com/nail-contouring-is-the-latest-art-you-need-to-learn-asap/)
-- [simple line nail designs](https://nails.allwomenstalk.com/follow-these-ig-accounts-if-you-love-yourself-some-nail-art/)
-- [chanel green nail polish](https://nails.allwomenstalk.com/revolutionary-new-non-toxic-nail-polishes-every-girl-needs/)
 - [summer red nails ideas](https://nails.allwomenstalk.com/summertime-nail-reds-for-girls-who-want-to-stand-out/)
+- [summer fingernail colors](https://nails.allwomenstalk.com/the-best-nail-colours-to-rock-in-summer/)
+- [fall beach nails](https://nails.allwomenstalk.com/best-nail-colors-for-fall-for-girls-who-love-a-fresh-mani/)
+- [grey nail color](https://nails.allwomenstalk.com/shades-of-grey-for-the-sexiest-nails-youve-ever-had/)
+- [chanel green nail polish](https://nails.allwomenstalk.com/revolutionary-new-non-toxic-nail-polishes-every-girl-needs/)
+- [simple line nail designs](https://nails.allwomenstalk.com/follow-these-ig-accounts-if-you-love-yourself-some-nail-art/)
+- [nails contour](https://nails.allwomenstalk.com/nail-contouring-is-the-latest-art-you-need-to-learn-asap/)
+- [fall colors for nail polish](https://nails.allwomenstalk.com/on-trend-pastel-nail-polishes-for-fall/)
 - [boston marathon nails](https://nails.allwomenstalk.com/breathtaking-nail-ideas-for-girls-who-need-serious-nail-inspo/)
 - [autumn nails](https://nails.allwomenstalk.com/on-point-fall-nail-polish-trends-you-must-see/)
-- [grey nail color](https://nails.allwomenstalk.com/shades-of-grey-for-the-sexiest-nails-youve-ever-had/)
-- [fall beach nails](https://nails.allwomenstalk.com/best-nail-colors-for-fall-for-girls-who-love-a-fresh-mani/)
 - [9 Fab Summer Nail Polishes (Pastels Need Not Apply...](https://allwomenstalk.com/9-fab-summer-nail-polishes-pastels-need-not-apply/)
 - [7 Gorgeous Nail Polishes for Fall ...](https://allwomenstalk.com/7-gorgeous-nail-polishes-for-fall/)
 

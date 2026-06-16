@@ -56,16 +56,16 @@ Don't skimp on your nail routine. Creating these designs will only take up a few
 
 ## Related Posts
 
-- [southwestern nails](https://nails.allwomenstalk.com/wait-till-you-see-these-tribal-nail-art-patterns/)
-- [arrow nail art](https://nails.allwomenstalk.com/hunger-games-fans-unite-of-the-coolest-nail-art-deisgns-ever/)
-- [shapes in polish](https://nails.allwomenstalk.com/make-your-polish-even-prettier-with-these-different-shapes-to-file-your-nails/)
-- [one color nail inspo](https://nails.allwomenstalk.com/awesome-reasons-to-try-neon-nail-art/)
-- [white nails with blue rhinestones](https://nails.allwomenstalk.com/bling-bling-sparkling-ideas-for-using-rhinestones-on-your-nails/)
-- [rainbow nails](https://nails.allwomenstalk.com/awesome-beach-themed-nail-art-ideas-to-make-your-summer-rock/)
 - [lilac short nail designs](https://nails.allwomenstalk.com/got-short-nails-here-are-the-nail-art-designs-youll-love/)
-- [dragon ball nail art](https://nails.allwomenstalk.com/the-best-dragon-nail-art-designs-in-the-whole-world/)
-- [summer easy nail art](https://nails.allwomenstalk.com/summer-gets-even-hotter-with-these-nail-art-ideas/)
+- [rainbow nails](https://nails.allwomenstalk.com/awesome-beach-themed-nail-art-ideas-to-make-your-summer-rock/)
 - [jamaican nail design ideas](https://nails.allwomenstalk.com/wait-until-you-see-these-outstanding-ways-to-do-geometric-nail-art/)
+- [dragon ball nail art](https://nails.allwomenstalk.com/the-best-dragon-nail-art-designs-in-the-whole-world/)
+- [white nails with blue rhinestones](https://nails.allwomenstalk.com/bling-bling-sparkling-ideas-for-using-rhinestones-on-your-nails/)
+- [southwestern nails](https://nails.allwomenstalk.com/wait-till-you-see-these-tribal-nail-art-patterns/)
+- [shapes in polish](https://nails.allwomenstalk.com/make-your-polish-even-prettier-with-these-different-shapes-to-file-your-nails/)
+- [arrow nail art](https://nails.allwomenstalk.com/hunger-games-fans-unite-of-the-coolest-nail-art-deisgns-ever/)
+- [one color nail inspo](https://nails.allwomenstalk.com/awesome-reasons-to-try-neon-nail-art/)
+- [summer easy nail art](https://nails.allwomenstalk.com/summer-gets-even-hotter-with-these-nail-art-ideas/)
 - [9 Awesome Nail Art Trends ...](https://makeup.allwomenstalk.com/awesome-nail-art-trends/)
 - [8 DIY Nail Art Techniques to Try ...](https://makeup.allwomenstalk.com/diy-nail-art-techniques-to-try/)
 
