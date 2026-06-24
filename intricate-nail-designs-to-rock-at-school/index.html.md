@@ -3,7 +3,7 @@ title: "7 Intricate Nail Designs to Rock at School ..."
 description: "Lightning Bolt Nail Art; Chevron Accent Nail Art; Biker Studded Nail Art; Newspaper Print Nail Art; Aztec Nail Art; More ..."
 url: "https://nails.allwomenstalk.com/intricate-nail-designs-to-rock-at-school/"
 category: "nails"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 Intricate Nail Designs to Rock at School ...
@@ -42,15 +42,15 @@ All of these nail designs are out of this world! What are your favorite designs 
 
 ## Related Posts
 
-- [unique toe rings](https://jewelry.allwomenstalk.com/playful-toe-rings-that-will-perfect-your-pedicure/)
 - [spring inspired nails](https://nails.allwomenstalk.com/fresh-spring-inspired-nail-tutorials/)
-- [blue nails with black designs](https://nails.allwomenstalk.com/gorgeous-blue-nail-designs-to-sport-this-season/)
+- [fresh nail designs](https://nails.allwomenstalk.com/fresh-nail-tutorials-for-easter/)
 - [punk rock nail designs](https://nails.allwomenstalk.com/grungy-nail-designs-that-are-too-hot-to-handle/)
-- [greyish purple nails](https://nails.allwomenstalk.com/nail-color-combinations-that-look-divine/)
+- [trendy nail colours](https://nails.allwomenstalk.com/trendy-nail-polish-colors-you-absolutely-must-try-now/)
 - [what is the best top coat for acrylic nails](https://nails.allwomenstalk.com/best-top-coats-to-top-off-your-marvelous-mani/)
 - [zooey dechanel engagement ring](https://nails.allwomenstalk.com/electric-zooey-deschanel-inspired-nail-designs/)
-- [trendy nail colours](https://nails.allwomenstalk.com/trendy-nail-polish-colors-you-absolutely-must-try-now/)
-- [fresh nail designs](https://nails.allwomenstalk.com/fresh-nail-tutorials-for-easter/)
+- [blue nails with black designs](https://nails.allwomenstalk.com/gorgeous-blue-nail-designs-to-sport-this-season/)
+- [unique toe rings](https://jewelry.allwomenstalk.com/playful-toe-rings-that-will-perfect-your-pedicure/)
+- [greyish purple nails](https://nails.allwomenstalk.com/nail-color-combinations-that-look-divine/)
 - [edgy rock nails](https://nails.allwomenstalk.com/edgy-manicures-to-rock-on-your-first-date/)
 - [7 Best Blogs on Nail Art ...](https://allwomenstalk.com/best-blogs-on-nail-art/)
 - [9 Awesome Nail Art Trends ...](https://makeup.allwomenstalk.com/awesome-nail-art-trends/)
