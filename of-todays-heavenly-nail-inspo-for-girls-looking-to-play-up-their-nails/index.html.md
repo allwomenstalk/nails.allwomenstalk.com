@@ -3,7 +3,7 @@ title: "17 of Today's Heavenly Nail Inspo for Girls Looking to Play up Their Nai
 description: "@glistenandglow1; @indigonails; @helennails_yeg; @justagirlandhernails; @bornprettystorenailart; More ..."
 url: "https://nails.allwomenstalk.com/of-todays-heavenly-nail-inspo-for-girls-looking-to-play-up-their-nails/"
 category: "nails"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 17 of Today's Heavenly Nail Inspo for Girls Looking to Play up Their Nails ...
@@ -50,16 +50,16 @@ Aren't these gorgeous? Tell us which ones you liked best! And if your fav nail a
 
 ## Related Posts
 
+- [french tip 3.5](https://nails.allwomenstalk.com/best-exotic-nails/)
+- [why does my nail polish have scratches](https://nails.allwomenstalk.com/of-todays-extraordinary-nail-inspo-for-dolls-who-are-taking-care-of-their-nails/)
+- [long nails sharp](https://nails.allwomenstalk.com/best-long-nails/)
+- [christmas nail stripes](https://nails.allwomenstalk.com/best-polished-nails/)
+- [tiffany blue nails](https://nails.allwomenstalk.com/best-blue-nails/)
+- [let's be friends dip](https://nails.allwomenstalk.com/best-gel-nails/)
+- [mani inspo](https://nails.allwomenstalk.com/of-todays-swoon-worthy-nail-inspo-for-mani-obsessed-people/)
+- [loreal paris riche le stylo smoky eye golden](https://nails.allwomenstalk.com/of-todays-amazing-nail-inspo-for-women-who-really-know-beauty/)
 - [76 Best Best Nails ...](https://nails.allwomenstalk.com/best-best-nails/)
 - [96 Best Beauty Nails ...](https://nails.allwomenstalk.com/best-beauty-nails/)
-- [let's be friends dip](https://nails.allwomenstalk.com/best-gel-nails/)
-- [christmas nail stripes](https://nails.allwomenstalk.com/best-polished-nails/)
-- [french tip 3.5](https://nails.allwomenstalk.com/best-exotic-nails/)
-- [long nails sharp](https://nails.allwomenstalk.com/best-long-nails/)
-- [tiffany blue nails](https://nails.allwomenstalk.com/best-blue-nails/)
-- [loreal paris riche le stylo smoky eye golden](https://nails.allwomenstalk.com/of-todays-amazing-nail-inspo-for-women-who-really-know-beauty/)
-- [why does my nail polish have scratches](https://nails.allwomenstalk.com/of-todays-extraordinary-nail-inspo-for-dolls-who-are-taking-care-of-their-nails/)
-- [mani inspo](https://nails.allwomenstalk.com/of-todays-swoon-worthy-nail-inspo-for-mani-obsessed-people/)
 - [19 of Today's Awesome Nail Inspo for Women Who Wan...](https://nails.allwomenstalk.com/of-todays-awesome-nail-inspo-for-women-who-want-to-invest-in-their-look/)
 - [22 of Today's Heavenly Nail Inspo for Girls Who Ar...](https://nails.allwomenstalk.com/of-todays-heavenly-nail-inspo-for-girls-who-are-always-on-trend/)
 

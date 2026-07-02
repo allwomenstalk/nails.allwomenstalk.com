@@ -3,7 +3,7 @@ title: "Awesome 80s Nail Art That Will Take You Back to Another Era ..."
 description: "Punk Rock Star in Pink and Black; Bold Bolts; Neon Pointy Nails; A Whole Lot of 80s in One Place; 80s Splatter Painting; More ..."
 url: "https://nails.allwomenstalk.com/awesome-80s-nail-art-that-will-take-you-back-to-another-era/"
 category: "nails"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # Awesome 80s Nail Art That Will Take You Back to Another Era ...
@@ -189,16 +189,16 @@ Did you grow up in the 80s? Do these bring back memories? Which one is your favo
 
 ## Related Posts
 
-- [harry potter nail art simple](https://nails.allwomenstalk.com/harry-potter-nail-art-patterns-for-the-biggest-fans/)
 - [homemade nail polish](https://nails.allwomenstalk.com/nail-polish-hacks-you-really-need-to-know/)
-- [nail ve](https://nails.allwomenstalk.com/these-are-the-most-perfect-back-to-school-nail-art-designs-youve-ever-seen/)
-- [can you change the color of ombre nails](https://nails.allwomenstalk.com/ombre-nails-that-will-blow-your-mind/)
-- [green plaid christmas nails](https://nails.allwomenstalk.com/awesome-plaid-nail-art-designs-for-your-preppy-days/)
-- [nail.design ideas 2023](https://nails.allwomenstalk.com/really-cool-sponged-nail-art-ideas-to-rock-your-world/)
-- [3d summer nails](https://nails.allwomenstalk.com/dazzling-3d-nail-art-designs-you-wont-be-able-to-take-your-eyes-off-of/)
 - [summer nail](https://nails.allwomenstalk.com/white-hot-nails-for-summertime/)
+- [3d summer nails](https://nails.allwomenstalk.com/dazzling-3d-nail-art-designs-you-wont-be-able-to-take-your-eyes-off-of/)
+- [nail.design ideas 2023](https://nails.allwomenstalk.com/really-cool-sponged-nail-art-ideas-to-rock-your-world/)
 - [uñas de fall](https://nails.allwomenstalk.com/get-your-autumn-on-with-this-fall-inspired-nail-art/)
+- [can you change the color of ombre nails](https://nails.allwomenstalk.com/ombre-nails-that-will-blow-your-mind/)
+- [harry potter nail art simple](https://nails.allwomenstalk.com/harry-potter-nail-art-patterns-for-the-biggest-fans/)
 - [rainbow nail design](https://nails.allwomenstalk.com/rainbow-nail-art-to-make-you-smile/)
+- [green plaid christmas nails](https://nails.allwomenstalk.com/awesome-plaid-nail-art-designs-for-your-preppy-days/)
+- [nail ve](https://nails.allwomenstalk.com/these-are-the-most-perfect-back-to-school-nail-art-designs-youve-ever-seen/)
 - [9 Awesome Nail Art Trends ...](https://makeup.allwomenstalk.com/awesome-nail-art-trends/)
 - [9 Examples of Pop-Culture Nail Art ...](https://makeup.allwomenstalk.com/examples-of-pop-culture-nail-art/)
 

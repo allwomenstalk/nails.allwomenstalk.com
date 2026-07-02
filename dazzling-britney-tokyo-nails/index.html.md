@@ -3,7 +3,7 @@ title: "What Makes Britney TOKYO's Nail Designs So Captivating..."
 description: "The Allure of Celebrity-Inspired Nail Art; Britney TOKYO’s Signature Style; The Experience; Unlocking Your Own Nail Narrative; More ..."
 url: "https://nails.allwomenstalk.com/dazzling-britney-tokyo-nails/"
 category: "nails"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # What Makes Britney TOKYO's Nail Designs So Captivating...
