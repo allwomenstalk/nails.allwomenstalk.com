@@ -30,16 +30,16 @@ There is a feeling of going back to basics for this summer’s nail trends, and 
 
 ## Related Posts
 
+- [acrylic nails vs dip](https://nails.allwomenstalk.com/gel-acrylic-or-dip-which-gives-the-best-nails/)
 - [nauls inspo](https://nails.allwomenstalk.com/nail-inspiration-from-instagram/)
-- [healthiest nail polish brands](https://nails.allwomenstalk.com/healthy-nail-polish-brands/)
+- [that girl nail inspo](https://nails.allwomenstalk.com/hottest-nail-inspiration-on-instagram/)
+- [nail art for ladies](https://nails.allwomenstalk.com/nude-nail-designs-for-girls-who-like-to-keep-it-simple/)
 - [irresistible nails](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram-5/)
 - [negative space nail ideas](https://nails.allwomenstalk.com/negative-space-is-the-new-ig-hot-nail-trend/)
+- [healthiest nail polish brands](https://nails.allwomenstalk.com/healthy-nail-polish-brands/)
 - [fall season nail colors](https://nails.allwomenstalk.com/of-the-most-beautiful-fall-season-nail-polish-colors/)
 - [easter nails different colors](https://nails.allwomenstalk.com/these-nail-art-patterns-will-make-your-easter-holiday-something-really-special/)
-- [acrylic nails vs dip](https://nails.allwomenstalk.com/gel-acrylic-or-dip-which-gives-the-best-nails/)
 - [dolls nails](https://nails.allwomenstalk.com/of-todays-mesmerizing-nail-inspo-for-confident-dolls/)
-- [nail art for ladies](https://nails.allwomenstalk.com/nude-nail-designs-for-girls-who-like-to-keep-it-simple/)
-- [that girl nail inspo](https://nails.allwomenstalk.com/hottest-nail-inspiration-on-instagram/)
 - [9 on-Trend Spring Nail Colors ...](https://makeup.allwomenstalk.com/on-trend-spring-nail-colors/)
 - [8 Sexiest Nail Polish ...](https://allwomenstalk.com/8-sexiest-nail-polish/)
 

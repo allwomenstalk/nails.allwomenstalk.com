@@ -68,16 +68,16 @@ This article was written in collaboration with editor Lydia Sheehan.
 
 ## Related Posts
 
-- [how make nail polish last longer](https://nails.allwomenstalk.com/tips-on-how-to-make-nail-polish-stay-on-longer-2/)
-- [nail chemical formula](https://nails.allwomenstalk.com/things-you-need-to-know-about-nail-polish-formulas/)
-- [what are my fingernails made of](https://nails.allwomenstalk.com/things-you-should-know-about-your-nails/)
-- [fingernails half white half pink](https://nails.allwomenstalk.com/home-remedies-for-brittle-nails/)
 - [how to get nail polish remover off skin](https://lifestyle.allwomenstalk.com/ways-to-use-nail-polish-remover/)
-- [acrylic nail maintenance](https://beauty.allwomenstalk.com/ways-to-take-care-of-acrylic-nails/)
-- [brittle fingernails](https://nails.allwomenstalk.com/helpful-ways-you-can-strengthen-dry-and-brittle-nails/)
 - [nail colors for my skin tone](https://nails.allwomenstalk.com/tips-on-matching-nail-polish-color-with-your-skin-tone/)
+- [brittle fingernails](https://nails.allwomenstalk.com/helpful-ways-you-can-strengthen-dry-and-brittle-nails/)
+- [fingernails half white half pink](https://nails.allwomenstalk.com/home-remedies-for-brittle-nails/)
+- [nail chemical formula](https://nails.allwomenstalk.com/things-you-need-to-know-about-nail-polish-formulas/)
+- [how make nail polish last longer](https://nails.allwomenstalk.com/tips-on-how-to-make-nail-polish-stay-on-longer-2/)
+- [what are my fingernails made of](https://nails.allwomenstalk.com/things-you-should-know-about-your-nails/)
 - [what food makes nails grow](https://food.allwomenstalk.com/superfoods-to-help-your-nails-grow/)
 - [how to get nail polish to dry quick](https://nails.allwomenstalk.com/helpful-tips-on-how-to-make-your-nails-dry-faster/)
+- [acrylic nail maintenance](https://beauty.allwomenstalk.com/ways-to-take-care-of-acrylic-nails/)
 - [8 Tips for Choosing the Right Nail Polish ...](https://makeup.allwomenstalk.com/8-tips-for-choosing-the-right-nail-polish/)
 - [7 Tips on Having Model Nails ...](https://allwomenstalk.com/7-tips-on-having-model-nails/)
 

@@ -56,15 +56,15 @@ Which of these trends would you be sad to see go? Which ones do you wish never t
 
 ## Related Posts
 
-- [sharpie on nails](https://nails.allwomenstalk.com/pieces-of-nail-art-you-can-create-with-a-sharpie/)
-- [coral ombre nails](https://nails.allwomenstalk.com/ombre-nail-tutorials-thatll-teach-you-how-to-look-your-best/)
-- [nail style names](https://nails.allwomenstalk.com/check-out-this-valentines-day-nail-art-inspiration/)
-- [nail trends 2016](https://nails.allwomenstalk.com/these-are-the-hottest-nails-trends-for/)
-- [paper nail ideas](https://nails.allwomenstalk.com/booksworms-will-love-this-newspaper-nail-art/)
 - [basketball toenails](https://nails.allwomenstalk.com/basketball-nails-thatll-get-you-pumped-for-march-madness/)
+- [nail style names](https://nails.allwomenstalk.com/check-out-this-valentines-day-nail-art-inspiration/)
+- [3 dimensional nail art](https://nails.allwomenstalk.com/3-d-nail-art-all-of-your-friends-will-flip-over/)
+- [paper nail ideas](https://nails.allwomenstalk.com/booksworms-will-love-this-newspaper-nail-art/)
 - [loreal paris la maximalist eyeshadow skirt](https://nails.allwomenstalk.com/furry-nails-are-a-bizarre-new-nail-trend/)
 - [pink floyd nail designs](https://nails.allwomenstalk.com/youre-going-to-love-this-grunge-nail-art/)
-- [3 dimensional nail art](https://nails.allwomenstalk.com/3-d-nail-art-all-of-your-friends-will-flip-over/)
+- [nail trends 2016](https://nails.allwomenstalk.com/these-are-the-hottest-nails-trends-for/)
+- [sharpie on nails](https://nails.allwomenstalk.com/pieces-of-nail-art-you-can-create-with-a-sharpie/)
+- [coral ombre nails](https://nails.allwomenstalk.com/ombre-nail-tutorials-thatll-teach-you-how-to-look-your-best/)
 - [green bay packers nail designs](https://nails.allwomenstalk.com/show-your-team-spirit-with-this-super-bowl-nail-art/)
 - [7 Hottest Nail Trends for Fall ...](https://beauty.allwomenstalk.com/hottest-nail-trends-for-fall/)
 - [9 on-Trend Spring Nail Colors ...](https://makeup.allwomenstalk.com/on-trend-spring-nail-colors/)

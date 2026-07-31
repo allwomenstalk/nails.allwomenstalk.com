@@ -52,16 +52,16 @@ Aren't these gorgeous? Tell us which ones you liked best! And if your fav nail a
 
 ## Related Posts
 
-- [coconut girl nail inspo](https://nails.allwomenstalk.com/of-todays-heavenly-nail-inspo-for-girls-obsessed-with-polish-art/)
-- [festival nails 2023](https://nails.allwomenstalk.com/best-christmas-easy-nails-ideas/)
-- [women's natural nails](https://nails.allwomenstalk.com/best-natural-christmas-nails/)
-- [visual kei nails](https://nails.allwomenstalk.com/best-sharp-nails/)
-- [perfect posture essie](https://nails.allwomenstalk.com/best-nails-etc/)
-- [site:allwomenstalk.com](https://nails.allwomenstalk.com/best-mod-nails/)
-- [beach summer toe nails](https://nails.allwomenstalk.com/best-beach-summer-toe-nails/)
-- [party nails avon](https://nails.allwomenstalk.com/best-avon-nails/)
 - [christmas confetti nail polish](https://nails.allwomenstalk.com/best-acrylic-christmas-nails/)
+- [site:allwomenstalk.com](https://nails.allwomenstalk.com/best-mod-nails/)
+- [visual kei nails](https://nails.allwomenstalk.com/best-sharp-nails/)
+- [party nails avon](https://nails.allwomenstalk.com/best-avon-nails/)
+- [beach summer toe nails](https://nails.allwomenstalk.com/best-beach-summer-toe-nails/)
+- [women's natural nails](https://nails.allwomenstalk.com/best-natural-christmas-nails/)
+- [festival nails 2023](https://nails.allwomenstalk.com/best-christmas-easy-nails-ideas/)
 - [nails design](https://nails.allwomenstalk.com/best-nails-design/)
+- [perfect posture essie](https://nails.allwomenstalk.com/best-nails-etc/)
+- [coconut girl nail inspo](https://nails.allwomenstalk.com/of-todays-heavenly-nail-inspo-for-girls-obsessed-with-polish-art/)
 - [19 of Today's Awesome Nail Inspo for Women Who Wan...](https://nails.allwomenstalk.com/of-todays-awesome-nail-inspo-for-women-who-want-to-invest-in-their-look/)
 - [14 of Today's Drool Worthy 🤤 Nail Inspo for Women...](https://nails.allwomenstalk.com/of-todays-drool-worthy-nail-inspo-for-women-who-want-an-incredible-mani-inspo/)
 

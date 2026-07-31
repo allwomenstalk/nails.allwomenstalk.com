@@ -42,16 +42,16 @@ How do you make your pedicure last longer?
 
 ## Related Posts
 
-- [is there an alternative to acrylic nails](https://nails.allwomenstalk.com/alternatives-to-acrylic-nails/)
-- [nails inc color changing polish](https://nails.allwomenstalk.com/top-secrets-from-manicurists-to-get-perfectly-painted-nails-at-home/)
-- [different color blue nails](https://nails.allwomenstalk.com/easy-nail-care-tips/)
-- [shelac](https://nails.allwomenstalk.com/pros-and-cons-of-a-cnd-shellac-manicure/)
-- [mascara nails](https://nails.allwomenstalk.com/nail-masks-for-healthy-nails/)
-- [really pretty nails](https://nails.allwomenstalk.com/the-best-care-tips-for-beautiful-nails/)
-- [nails too long](https://nails.allwomenstalk.com/miracle-ways-to-save-your-nails-for-girls-who-did-acrylics-for-way-too-long/)
 - [ragged cuticles](https://nails.allwomenstalk.com/super-simple-diy-treatments-for-girls-with-seriously-ragged-cuticles/)
-- [velociraptor acrylic nails](https://nails.allwomenstalk.com/nail-mistakes-to-avoid/)
+- [nails too long](https://nails.allwomenstalk.com/miracle-ways-to-save-your-nails-for-girls-who-did-acrylics-for-way-too-long/)
+- [really pretty nails](https://nails.allwomenstalk.com/the-best-care-tips-for-beautiful-nails/)
+- [different color blue nails](https://nails.allwomenstalk.com/easy-nail-care-tips/)
+- [is there an alternative to acrylic nails](https://nails.allwomenstalk.com/alternatives-to-acrylic-nails/)
 - [tips for healthy nails](https://nails.allwomenstalk.com/tips-for-healthy-nails/)
+- [nails inc color changing polish](https://nails.allwomenstalk.com/top-secrets-from-manicurists-to-get-perfectly-painted-nails-at-home/)
+- [shelac](https://nails.allwomenstalk.com/pros-and-cons-of-a-cnd-shellac-manicure/)
+- [velociraptor acrylic nails](https://nails.allwomenstalk.com/nail-mistakes-to-avoid/)
+- [mascara nails](https://nails.allwomenstalk.com/nail-masks-for-healthy-nails/)
 - [Feet Care Tips ...](https://allwomenstalk.com/feet-care-tips/)
 - [Pedicure Tips ...](https://allwomenstalk.com/pedicure-tips/)
 

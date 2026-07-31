@@ -248,16 +248,16 @@ Do you do nail art? What's your plan for Valentine's Day this year? Please feel 
 
 ## Related Posts
 
-- [nails white with flowers](https://nails.allwomenstalk.com/wait-til-you-see-these-awesome-flower-nail-art-designs/)
-- [sample of nail art designs](https://nails.allwomenstalk.com/fantastic-mardi-gras-nail-art-ideas/)
 - [steampunk claws](https://nails.allwomenstalk.com/steampunk-nails-that-will-blow-your-mind/)
-- [nail design black lines](https://nails.allwomenstalk.com/these-black-and-white-nail-art-patterns-will-rock-your-world/)
+- [nails white with flowers](https://nails.allwomenstalk.com/wait-til-you-see-these-awesome-flower-nail-art-designs/)
+- [jelly roll nail designs](https://nails.allwomenstalk.com/food-nail-art-designs-that-will-make-you-really-hungry/)
 - [nail videos](https://nails.allwomenstalk.com/up-your-style-game-with-these-nail-porn-videos/)
-- [ocean themed nail art](https://nails.allwomenstalk.com/really-cool-sea-creature-nail-art-patterns/)
 - [neon cheetah print nails](https://nails.allwomenstalk.com/wait-until-you-see-these-adorable-ideas-for-animal-nail-art/)
+- [nail design black lines](https://nails.allwomenstalk.com/these-black-and-white-nail-art-patterns-will-rock-your-world/)
+- [ocean themed nail art](https://nails.allwomenstalk.com/really-cool-sea-creature-nail-art-patterns/)
+- [sample of nail art designs](https://nails.allwomenstalk.com/fantastic-mardi-gras-nail-art-ideas/)
 - [neon turquoise nail polish](https://nails.allwomenstalk.com/fabulous-ways-to-wear-glitter-nail-polish/)
 - [football nail design](https://nails.allwomenstalk.com/sports-nail-art-ideas-that-will-make-you-ready-for-game-time/)
-- [jelly roll nail designs](https://nails.allwomenstalk.com/food-nail-art-designs-that-will-make-you-really-hungry/)
 - [9 Awesome Nail Art Trends ...](https://makeup.allwomenstalk.com/awesome-nail-art-trends/)
 - [7 Flirty and Fun Nail Polishes for Valentine's Day...](https://nails.allwomenstalk.com/flirty-and-fun-nail-polishes-for-valentines-day/)
 

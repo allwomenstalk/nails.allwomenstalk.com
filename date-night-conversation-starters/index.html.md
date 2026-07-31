@@ -46,16 +46,16 @@ Date nights should be fun, so why ruin it with not having good questions and top
 
 ## Related Posts
 
-- [how to stop smothering](https://love.allwomenstalk.com/sweet-ways-to-love-your-better-half-without-smothering-him/)
 - [reminder for boyfriend](https://love.allwomenstalk.com/cute-ideas-to-remind-your-partner-you-love-them/)
 - [broke date ideas](https://love.allwomenstalk.com/cheap-and-creative-date-ideas-for-broke-couples-in-love/)
-- [food questions to ask your boyfriend](https://wedding.allwomenstalk.com/delectable-ways-to-pop-the-question-using-food/)
-- [i am beyond grateful to have you in my life](https://lifestyle.allwomenstalk.com/wonderfully-sweet-ways-to-bless-someone-you-love/)
-- [create romantic atmosphere](https://love.allwomenstalk.com/ways-to-create-a-romantic-atmosphere/)
-- [how to show someone you care in a relationship](https://love.allwomenstalk.com/ways-to-show-your-significant-other-you-care/)
 - [fly me to the moon dance choreography](https://music.allwomenstalk.com/romantic-first-dance-songs-you-and-your-sweetie-will-love/)
+- [create romantic atmosphere](https://love.allwomenstalk.com/ways-to-create-a-romantic-atmosphere/)
+- [i am beyond grateful to have you in my life](https://lifestyle.allwomenstalk.com/wonderfully-sweet-ways-to-bless-someone-you-love/)
+- [how to stop smothering](https://love.allwomenstalk.com/sweet-ways-to-love-your-better-half-without-smothering-him/)
+- [food questions to ask your boyfriend](https://wedding.allwomenstalk.com/delectable-ways-to-pop-the-question-using-food/)
 - [best date ideas for married couples](https://love.allwomenstalk.com/more-date-night-ideas-for-married-couples/)
 - [travelling with a guy you like](https://travel.allwomenstalk.com/types-of-travel-romance-which-kind-found-you/)
+- [how to show someone you care in a relationship](https://love.allwomenstalk.com/ways-to-show-your-significant-other-you-care/)
 - [8 Romantic Ideas for Summer Dates ...](https://love.allwomenstalk.com/romantic-ideas-for-summer-dates/)
 - [10 Excellent Conversation Starters for a Great Fir...](https://love.allwomenstalk.com/excellent-conversation-starters-for-a-great-first-date/)
 

@@ -110,16 +110,16 @@ Which design is your favorite?
 
 ## Related Posts
 
-- [minimalist disney nails](https://nails.allwomenstalk.com/amazing-pieces-of-minimalist-nail-art/)
-- [green themed nails](https://nails.allwomenstalk.com/this-st-paddys-nail-art-will-make-others-green-with-envy/)
-- [nail style names](https://nails.allwomenstalk.com/check-out-this-valentines-day-nail-art-inspiration/)
 - [3 dimensional nail art](https://nails.allwomenstalk.com/3-d-nail-art-all-of-your-friends-will-flip-over/)
+- [minimalist disney nails](https://nails.allwomenstalk.com/amazing-pieces-of-minimalist-nail-art/)
+- [nordstrom chanel nail polish](https://nails.allwomenstalk.com/look-pretty-in-pale-polish-with-this-easter-nail-art/)
+- [nab beauty](https://nails.allwomenstalk.com/nails-colors-you-should-nab-for-spring/)
 - [coral ombre nails](https://nails.allwomenstalk.com/ombre-nail-tutorials-thatll-teach-you-how-to-look-your-best/)
+- [nail style names](https://nails.allwomenstalk.com/check-out-this-valentines-day-nail-art-inspiration/)
 - [green bay packers nail designs](https://nails.allwomenstalk.com/show-your-team-spirit-with-this-super-bowl-nail-art/)
 - [loreal paris la maximalist eyeshadow skirt](https://nails.allwomenstalk.com/furry-nails-are-a-bizarre-new-nail-trend/)
 - [nail art birds](https://nails.allwomenstalk.com/nail-infographics-thatll-make-you-look-pretty-as-a-picture/)
-- [nab beauty](https://nails.allwomenstalk.com/nails-colors-you-should-nab-for-spring/)
-- [nordstrom chanel nail polish](https://nails.allwomenstalk.com/look-pretty-in-pale-polish-with-this-easter-nail-art/)
+- [green themed nails](https://nails.allwomenstalk.com/this-st-paddys-nail-art-will-make-others-green-with-envy/)
 - [7 Fresh Spring-Inspired Nail Tutorials ...](https://nails.allwomenstalk.com/fresh-spring-inspired-nail-tutorials/)
 - [9 Easy Nail Ideas for Spring ...](https://nails.allwomenstalk.com/easy-nail-ideas-for-spring/)
 

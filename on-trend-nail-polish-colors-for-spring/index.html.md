@@ -56,16 +56,16 @@ Which spring 2013 nail polish trend are you going to rock first? And what about 
 
 ## Related Posts
 
-- [latest toenail colors](https://nails.allwomenstalk.com/best-toe-nail-polish-colors-to-wear-this-spring/)
-- [fun nail](https://nails.allwomenstalk.com/fun-nail-polish-combinations-to-try-this-spring/)
 - [nail art decal](https://nails.allwomenstalk.com/best-nail-art-decals/)
-- [uses of nail polish](https://makeup.allwomenstalk.com/uses-for-nail-polish/)
-- [gold holographic nail polish](https://nails.allwomenstalk.com/holographic-nail-colors-you-must-check-out/)
 - [chanel.nail polish](https://nails.allwomenstalk.com/budget-friendly-dupes-for-the-most-coveted-high-end-nail-polishes/)
+- [best nail color for everyday](https://nails.allwomenstalk.com/colors-you-need-to-start-a-nail-polish-collection/)
+- [gold holographic nail polish](https://nails.allwomenstalk.com/holographic-nail-colors-you-must-check-out/)
+- [leather effect nail polish](https://nails.allwomenstalk.com/top-textured-nail-polishes/)
+- [uses of nail polish](https://makeup.allwomenstalk.com/uses-for-nail-polish/)
 - [nails inc palace gardens](https://nails.allwomenstalk.com/top-nail-polishes-for-spring/)
 - [cute animal nail art designs](https://nails.allwomenstalk.com/cutest-animal-nail-art-tutorials/)
-- [best nail color for everyday](https://nails.allwomenstalk.com/colors-you-need-to-start-a-nail-polish-collection/)
-- [leather effect nail polish](https://nails.allwomenstalk.com/top-textured-nail-polishes/)
+- [fun nail](https://nails.allwomenstalk.com/fun-nail-polish-combinations-to-try-this-spring/)
+- [latest toenail colors](https://nails.allwomenstalk.com/best-toe-nail-polish-colors-to-wear-this-spring/)
 - [9 on-Trend Spring Nail Colors ...](https://makeup.allwomenstalk.com/on-trend-spring-nail-colors/)
 - [7 Most Fashionable Nail Polishes of Today ...](https://allwomenstalk.com/7-most-fashionable-nail-polishes-of-today/)
 

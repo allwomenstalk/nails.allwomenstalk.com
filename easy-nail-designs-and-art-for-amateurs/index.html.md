@@ -43,15 +43,15 @@ Personally, I love doing my nails on my days off because I find it relaxing. How
 ## Related Posts
 
 - [nail ideas for 10 year olds](https://nails.allwomenstalk.com/intricate-nail-designs-to-rock-at-school/)
-- [gothic red nails](https://nails.allwomenstalk.com/fierce-red-manicures-you-need-to-try/)
-- [glitter pink nail designs](https://nails.allwomenstalk.com/pretty-pink-nail-designs-you-will-fawn-over/)
-- [zooey dechanel engagement ring](https://nails.allwomenstalk.com/electric-zooey-deschanel-inspired-nail-designs/)
-- [what is the best top coat for acrylic nails](https://nails.allwomenstalk.com/best-top-coats-to-top-off-your-marvelous-mani/)
-- [glitter french tip pedicure](https://nails.allwomenstalk.com/tempting-french-manicure-variations-to-try-today/)
-- [spring inspired nails](https://nails.allwomenstalk.com/fresh-spring-inspired-nail-tutorials/)
 - [trendy nail colours](https://nails.allwomenstalk.com/trendy-nail-polish-colors-you-absolutely-must-try-now/)
-- [blue nails with black designs](https://nails.allwomenstalk.com/gorgeous-blue-nail-designs-to-sport-this-season/)
 - [unique toe rings](https://jewelry.allwomenstalk.com/playful-toe-rings-that-will-perfect-your-pedicure/)
+- [glitter pink nail designs](https://nails.allwomenstalk.com/pretty-pink-nail-designs-you-will-fawn-over/)
+- [glitter french tip pedicure](https://nails.allwomenstalk.com/tempting-french-manicure-variations-to-try-today/)
+- [gothic red nails](https://nails.allwomenstalk.com/fierce-red-manicures-you-need-to-try/)
+- [what is the best top coat for acrylic nails](https://nails.allwomenstalk.com/best-top-coats-to-top-off-your-marvelous-mani/)
+- [blue nails with black designs](https://nails.allwomenstalk.com/gorgeous-blue-nail-designs-to-sport-this-season/)
+- [spring inspired nails](https://nails.allwomenstalk.com/fresh-spring-inspired-nail-tutorials/)
+- [zooey dechanel engagement ring](https://nails.allwomenstalk.com/electric-zooey-deschanel-inspired-nail-designs/)
 - [7 Best Blogs on Nail Art ...](https://allwomenstalk.com/best-blogs-on-nail-art/)
 - [9 Awesome Nail Art Trends ...](https://makeup.allwomenstalk.com/awesome-nail-art-trends/)
 

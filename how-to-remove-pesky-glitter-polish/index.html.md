@@ -56,16 +56,16 @@ What other tips do you have for removing glitter polish?
 
 ## Related Posts
 
-- [manicure tools](https://nails.allwomenstalk.com/dont-give-yourself-a-manicure-without-these-tools/)
-- [marbling nail polish](https://nails.allwomenstalk.com/tutorials-thatll-teach-you-how-to-make-marble-nail-art/)
-- [dip nail shape](https://nails.allwomenstalk.com/what-does-your-nail-shape-say-about-you/)
-- [how to open nail polish that won't open](https://nails.allwomenstalk.com/signs-its-time-to-throw-out-your-nail-polish/)
-- [dark nail cuticles](https://skincare.allwomenstalk.com/these-things-are-damaging-your-cuticles/)
-- [funny bunny bubble bath](https://nails.allwomenstalk.com/keep-your-cuticles-clean-with-these-nail-products/)
-- [nails growth tips](https://nails.allwomenstalk.com/tips-to-growing-long-nails-fast/)
-- [ingredients nail polish](https://nails.allwomenstalk.com/you-never-want-these-ingredients-in-your-nail-polish/)
-- [what does nails tell about your health](https://nails.allwomenstalk.com/things-your-fingernails-can-tell-you-about-your-health/)
 - [how do i clean under my nails](https://nails.allwomenstalk.com/how-to-clean-underneath-your-nails/)
+- [dark nail cuticles](https://skincare.allwomenstalk.com/these-things-are-damaging-your-cuticles/)
+- [ingredients nail polish](https://nails.allwomenstalk.com/you-never-want-these-ingredients-in-your-nail-polish/)
+- [how to open nail polish that won't open](https://nails.allwomenstalk.com/signs-its-time-to-throw-out-your-nail-polish/)
+- [marbling nail polish](https://nails.allwomenstalk.com/tutorials-thatll-teach-you-how-to-make-marble-nail-art/)
+- [funny bunny bubble bath](https://nails.allwomenstalk.com/keep-your-cuticles-clean-with-these-nail-products/)
+- [dip nail shape](https://nails.allwomenstalk.com/what-does-your-nail-shape-say-about-you/)
+- [manicure tools](https://nails.allwomenstalk.com/dont-give-yourself-a-manicure-without-these-tools/)
+- [nails growth tips](https://nails.allwomenstalk.com/tips-to-growing-long-nails-fast/)
+- [what does nails tell about your health](https://nails.allwomenstalk.com/things-your-fingernails-can-tell-you-about-your-health/)
 - [Makeup 101: Cleaning Your Makeup Brushes ...](https://makeup.allwomenstalk.com/makeup-101-cleaning-your-makeup-brushes/)
 - [The Trick to Keeping Your Make-up in Place ...](https://makeup.allwomenstalk.com/the-trick-to-keeping-your-make-up-in-place/)
 

@@ -104,16 +104,16 @@ If you're not ready for a full set of lace, try it on just one accent nail. Itâ€
 
 ## Related Posts
 
-- [butter nail polish hen party](https://nails.allwomenstalk.com/you-should-go-nude-in-these-nude-nail-polishes-for-summer/)
-- [images of fall nail colors](https://nails.allwomenstalk.com/nail-colors-to-show-off-your-tan/)
-- [vacations nails](https://nails.allwomenstalk.com/check-out-this-superb-travel-nail-art-to-do-for-your-vacation/)
-- [nail decorating ideas](https://nails.allwomenstalk.com/nautical-nail-art-ideas-that-will-rock-your-world/)
-- [pretty girls nails](https://nails.allwomenstalk.com/youll-scream-for-these-ice-cream-colored-nails/)
-- [block nail art](https://nails.allwomenstalk.com/heres-how-to-take-the-color-blocking-trend-to-your-nails/)
-- [essie blood red nail polish](https://nails.allwomenstalk.com/heres-how-to-nail-the-red-polish-look-for-this-summer/)
-- [nail color summer](https://nails.allwomenstalk.com/matte-nail-polish-colors-to-spring-for-this-summer/)
 - [violet nails design](https://nails.allwomenstalk.com/metallic-nail-art-ideas-that-will-rock-your-world/)
+- [nail color summer](https://nails.allwomenstalk.com/matte-nail-polish-colors-to-spring-for-this-summer/)
 - [pedicure style](https://nails.allwomenstalk.com/fun-summer-pedicure-ideas-to-make-your-feet-stand-out/)
+- [essie blood red nail polish](https://nails.allwomenstalk.com/heres-how-to-nail-the-red-polish-look-for-this-summer/)
+- [butter nail polish hen party](https://nails.allwomenstalk.com/you-should-go-nude-in-these-nude-nail-polishes-for-summer/)
+- [pretty girls nails](https://nails.allwomenstalk.com/youll-scream-for-these-ice-cream-colored-nails/)
+- [images of fall nail colors](https://nails.allwomenstalk.com/nail-colors-to-show-off-your-tan/)
+- [nail decorating ideas](https://nails.allwomenstalk.com/nautical-nail-art-ideas-that-will-rock-your-world/)
+- [block nail art](https://nails.allwomenstalk.com/heres-how-to-take-the-color-blocking-trend-to-your-nails/)
+- [vacations nails](https://nails.allwomenstalk.com/check-out-this-superb-travel-nail-art-to-do-for-your-vacation/)
 - [9 Cool Nail Wraps You've Got to See ...](https://nails.allwomenstalk.com/cool-nail-wraps-youve-got-to-see/)
 - [25 Dazzling Manicures You'll Absolutely Adore ...](https://nails.allwomenstalk.com/dazzling-manicures-youll-absolutely-adore/)
 

@@ -164,16 +164,16 @@ Which of these holographic colors are you dying to wear first?
 
 ## Related Posts
 
-- [holly xmas nails](https://nails.allwomenstalk.com/apply-this-christmas-nail-art-before-your-holiday-party/)
-- [animal with nails](https://nails.allwomenstalk.com/show-off-your-wild-side-with-these-animal-print-nails/)
-- [winter nail art](https://nails.allwomenstalk.com/winter-nail-art-thats-gorgeous-and-glittery/)
 - [pearl white color nails](https://nails.allwomenstalk.com/pearl-nail-art-thatll-make-you-look-elegant-all-around/)
 - [candy cane nail designs](https://nails.allwomenstalk.com/dont-go-through-winter-without-trying-snow-nail-art/)
-- [feathers nails](https://nails.allwomenstalk.com/the-fiercest-feather-nail-art-youll-ever-see/)
-- [war nails](https://nails.allwomenstalk.com/awaken-the-force-with-star-wars-nail-art/)
-- [chanel solar nail polish](https://nails.allwomenstalk.com/glitter-polishes-that-will-perfectly-match-any-holiday-outfit/)
 - [funky nail polish](https://nails.allwomenstalk.com/use-these-funky-colors-to-give-your-nails-some-personality/)
+- [animal with nails](https://nails.allwomenstalk.com/show-off-your-wild-side-with-these-animal-print-nails/)
+- [holly xmas nails](https://nails.allwomenstalk.com/apply-this-christmas-nail-art-before-your-holiday-party/)
+- [war nails](https://nails.allwomenstalk.com/awaken-the-force-with-star-wars-nail-art/)
+- [feathers nails](https://nails.allwomenstalk.com/the-fiercest-feather-nail-art-youll-ever-see/)
 - [red thanksgiving nails](https://nails.allwomenstalk.com/thanksgiving-nail-art-your-family-will-find-adorable/)
+- [winter nail art](https://nails.allwomenstalk.com/winter-nail-art-thats-gorgeous-and-glittery/)
+- [chanel solar nail polish](https://nails.allwomenstalk.com/glitter-polishes-that-will-perfectly-match-any-holiday-outfit/)
 - [The Most Creative Uses for Nail Polish You'll Ever...](https://nails.allwomenstalk.com/creative-uses-for-nail-polish/)
 - [Magnificent Mani-Pedi Color Combos to Make You Smi...](https://nails.allwomenstalk.com/magnificent-mani-pedi-color-pairings-to-make-you-smile/)
 

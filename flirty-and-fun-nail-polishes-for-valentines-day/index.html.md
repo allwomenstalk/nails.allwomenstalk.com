@@ -58,16 +58,16 @@ This article was written in collaboration with editor Lyndsie Robinson.
 
 ## Related Posts
 
+- [latest toenail colors](https://nails.allwomenstalk.com/best-toe-nail-polish-colors-to-wear-this-spring/)
 - [nail polish double colour](https://nails.allwomenstalk.com/on-trend-nail-polish-colors-for-spring/)
+- [chanel.nail polish](https://nails.allwomenstalk.com/budget-friendly-dupes-for-the-most-coveted-high-end-nail-polishes/)
 - [cute animal nail art designs](https://nails.allwomenstalk.com/cutest-animal-nail-art-tutorials/)
-- [santa hat nails](https://nails.allwomenstalk.com/dessert-nail-art-tutorials-too-sweet-to-resist/)
+- [celebrity nail polish](https://nails.allwomenstalk.com/gorgeous-celebrity-nail-polishes-to-try/)
+- [nail art decal](https://nails.allwomenstalk.com/best-nail-art-decals/)
 - [nail polish that cracks when it dries](https://nails.allwomenstalk.com/best-crackle-nail-polishes/)
 - [best nail color for everyday](https://nails.allwomenstalk.com/colors-you-need-to-start-a-nail-polish-collection/)
+- [santa hat nails](https://nails.allwomenstalk.com/dessert-nail-art-tutorials-too-sweet-to-resist/)
 - [fun nail](https://nails.allwomenstalk.com/fun-nail-polish-combinations-to-try-this-spring/)
-- [nail art decal](https://nails.allwomenstalk.com/best-nail-art-decals/)
-- [celebrity nail polish](https://nails.allwomenstalk.com/gorgeous-celebrity-nail-polishes-to-try/)
-- [latest toenail colors](https://nails.allwomenstalk.com/best-toe-nail-polish-colors-to-wear-this-spring/)
-- [chanel.nail polish](https://nails.allwomenstalk.com/budget-friendly-dupes-for-the-most-coveted-high-end-nail-polishes/)
 - [7 Most Fashionable Nail Polishes of Today ...](https://allwomenstalk.com/7-most-fashionable-nail-polishes-of-today/)
 - [7 Gorgeous Nail Polishes for Fall ...](https://allwomenstalk.com/7-gorgeous-nail-polishes-for-fall/)
 

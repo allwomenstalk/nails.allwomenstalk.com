@@ -62,16 +62,16 @@ In my opinion, nail art is the perfect way to showcase your personality. Do you 
 
 ## Related Posts
 
-- [nail polish that cracks when it dries](https://nails.allwomenstalk.com/best-crackle-nail-polishes/)
 - [metallic green nail polish](https://nails.allwomenstalk.com/magical-metallic-nail-polishes/)
-- [santa hat nails](https://nails.allwomenstalk.com/dessert-nail-art-tutorials-too-sweet-to-resist/)
-- [nail polish double colour](https://nails.allwomenstalk.com/on-trend-nail-polish-colors-for-spring/)
-- [celebrity nail polish](https://nails.allwomenstalk.com/gorgeous-celebrity-nail-polishes-to-try/)
-- [nail art decal](https://nails.allwomenstalk.com/best-nail-art-decals/)
-- [cute animal nail art designs](https://nails.allwomenstalk.com/cutest-animal-nail-art-tutorials/)
-- [fun nail](https://nails.allwomenstalk.com/fun-nail-polish-combinations-to-try-this-spring/)
-- [latest toenail colors](https://nails.allwomenstalk.com/best-toe-nail-polish-colors-to-wear-this-spring/)
 - [valentines day nail colors](https://nails.allwomenstalk.com/flirty-and-fun-nail-polishes-for-valentines-day/)
+- [cute animal nail art designs](https://nails.allwomenstalk.com/cutest-animal-nail-art-tutorials/)
+- [nail art decal](https://nails.allwomenstalk.com/best-nail-art-decals/)
+- [celebrity nail polish](https://nails.allwomenstalk.com/gorgeous-celebrity-nail-polishes-to-try/)
+- [santa hat nails](https://nails.allwomenstalk.com/dessert-nail-art-tutorials-too-sweet-to-resist/)
+- [nail polish that cracks when it dries](https://nails.allwomenstalk.com/best-crackle-nail-polishes/)
+- [latest toenail colors](https://nails.allwomenstalk.com/best-toe-nail-polish-colors-to-wear-this-spring/)
+- [nail polish double colour](https://nails.allwomenstalk.com/on-trend-nail-polish-colors-for-spring/)
+- [fun nail](https://nails.allwomenstalk.com/fun-nail-polish-combinations-to-try-this-spring/)
 - [7 Hottest Nail Trends for Fall ...](https://beauty.allwomenstalk.com/hottest-nail-trends-for-fall/)
 - [9 on-Trend Spring Nail Colors ...](https://makeup.allwomenstalk.com/on-trend-spring-nail-colors/)
 

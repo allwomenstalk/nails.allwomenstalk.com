@@ -44,14 +44,14 @@ I love these tips and I hope you do too! They may not seem like much, but theyâ€
 
 - [geometric french nails](https://nails.allwomenstalk.com/ways-to-make-nail-designs-using-tape/)
 - [best nail polish remover for glitter](https://nails.allwomenstalk.com/tips-on-how-to-remove-glitter-nail-polish/)
-- [nail colors for my skin tone](https://nails.allwomenstalk.com/tips-on-matching-nail-polish-color-with-your-skin-tone/)
-- [acrylic nail maintenance](https://beauty.allwomenstalk.com/ways-to-take-care-of-acrylic-nails/)
 - [how to get nail polish remover off skin](https://lifestyle.allwomenstalk.com/ways-to-use-nail-polish-remover/)
+- [what food makes nails grow](https://food.allwomenstalk.com/superfoods-to-help-your-nails-grow/)
+- [nail colors for my skin tone](https://nails.allwomenstalk.com/tips-on-matching-nail-polish-color-with-your-skin-tone/)
+- [why aren't my gel nails drying](https://nails.allwomenstalk.com/tips-on-how-to-make-nail-polish-stay-on-longer/)
 - [nail chemical formula](https://nails.allwomenstalk.com/things-you-need-to-know-about-nail-polish-formulas/)
 - [keeping long nails](https://nails.allwomenstalk.com/tips-for-growing-long-nails-and-keeping-them/)
-- [what food makes nails grow](https://food.allwomenstalk.com/superfoods-to-help-your-nails-grow/)
-- [why aren't my gel nails drying](https://nails.allwomenstalk.com/tips-on-how-to-make-nail-polish-stay-on-longer/)
 - [how to wash your hair with acrylic nails](https://nails.allwomenstalk.com/tips-for-caring-for-acrylic-nails/)
+- [acrylic nail maintenance](https://beauty.allwomenstalk.com/ways-to-take-care-of-acrylic-nails/)
 - [7 Tips on Maintaining Good Fingernails ...](https://allwomenstalk.com/7-tips-on-maintaining-good-fingernails/)
 - [7 Tips to Stop Biting Your Nails ...](https://allwomenstalk.com/7-tips-to-stop-biting-your-nails/)
 

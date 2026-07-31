@@ -60,16 +60,16 @@ Don't be afraid to mix and match colors for a look that is truly all you! Are th
 
 ## Related Posts
 
-- [nail designs for valentines](https://nails.allwomenstalk.com/fabulous-valentines-day-nail-art-designs/)
 - [nail instagram names](https://nails.allwomenstalk.com/the-best-instagram-accounts-to-follow-for-some-serious-nail-art-inspo/)
-- [new nails](https://nails.allwomenstalk.com/awesome-new-years-eve-nail-art-designs-to-help-you-ring-it-in/)
-- [manicure for wedding](https://wedding.allwomenstalk.com/winter-wedding-nail-art-designs-for-your-special-day/)
-- [festive fingernails](https://nails.allwomenstalk.com/fabulously-festive-nail-art-tutorials/)
-- [black with pink glitter nails](https://nails.allwomenstalk.com/ideal-gifts-for-a-die-hard-nail-polish-fan/)
-- [hanukkah inspired nails](https://nails.allwomenstalk.com/fantastic-hanukkah-nail-art-designs-to-help-you-celebrate/)
-- [trending holiday nail colors](https://nails.allwomenstalk.com/nail-polish-colors-for-the-holidays/)
-- [best nail artists](https://nails.allwomenstalk.com/nail-artists-to-follow-in-instagram/)
+- [nail designs for valentines](https://nails.allwomenstalk.com/fabulous-valentines-day-nail-art-designs/)
 - [neon turquoise nail polish](https://nails.allwomenstalk.com/fabulous-ways-to-wear-glitter-nail-polish/)
+- [festive fingernails](https://nails.allwomenstalk.com/fabulously-festive-nail-art-tutorials/)
+- [trending holiday nail colors](https://nails.allwomenstalk.com/nail-polish-colors-for-the-holidays/)
+- [hanukkah inspired nails](https://nails.allwomenstalk.com/fantastic-hanukkah-nail-art-designs-to-help-you-celebrate/)
+- [best nail artists](https://nails.allwomenstalk.com/nail-artists-to-follow-in-instagram/)
+- [new nails](https://nails.allwomenstalk.com/awesome-new-years-eve-nail-art-designs-to-help-you-ring-it-in/)
+- [black with pink glitter nails](https://nails.allwomenstalk.com/ideal-gifts-for-a-die-hard-nail-polish-fan/)
+- [manicure for wedding](https://wedding.allwomenstalk.com/winter-wedding-nail-art-designs-for-your-special-day/)
 - [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
 - [8 Acid Bright Nail Polish Colors to Try ...](https://makeup.allwomenstalk.com/acid-bright-nail-polish-colors-to-try/)
 

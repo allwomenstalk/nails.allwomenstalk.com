@@ -145,15 +145,15 @@ Do these in pink and red, maybe with silver or gold, too?
 ## Related Posts
 
 - [nail art birds](https://nails.allwomenstalk.com/nail-infographics-thatll-make-you-look-pretty-as-a-picture/)
-- [fall matte nails](https://nails.allwomenstalk.com/matte-nail-art-inspiration-thatll-make-you-look-elegant/)
+- [green themed nails](https://nails.allwomenstalk.com/this-st-paddys-nail-art-will-make-others-green-with-envy/)
+- [nails emoji text](https://nails.allwomenstalk.com/pieces-of-emoji-nail-art-for-phone-addicts/)
 - [minimalist disney nails](https://nails.allwomenstalk.com/amazing-pieces-of-minimalist-nail-art/)
+- [nab beauty](https://nails.allwomenstalk.com/nails-colors-you-should-nab-for-spring/)
+- [nordstrom chanel nail polish](https://nails.allwomenstalk.com/look-pretty-in-pale-polish-with-this-easter-nail-art/)
 - [elegant fingernail designs](https://nails.allwomenstalk.com/an-elegant-nail-design-for-the-fanciest-occasions/)
 - [3 dimensional nail art](https://nails.allwomenstalk.com/3-d-nail-art-all-of-your-friends-will-flip-over/)
-- [nordstrom chanel nail polish](https://nails.allwomenstalk.com/look-pretty-in-pale-polish-with-this-easter-nail-art/)
-- [nails emoji text](https://nails.allwomenstalk.com/pieces-of-emoji-nail-art-for-phone-addicts/)
-- [green themed nails](https://nails.allwomenstalk.com/this-st-paddys-nail-art-will-make-others-green-with-envy/)
 - [spring bling nail designs](https://nails.allwomenstalk.com/pieces-of-springtime-nail-art-inspiration/)
-- [nab beauty](https://nails.allwomenstalk.com/nails-colors-you-should-nab-for-spring/)
+- [fall matte nails](https://nails.allwomenstalk.com/matte-nail-art-inspiration-thatll-make-you-look-elegant/)
 - [9 Awesome Nail Art Trends ...](https://makeup.allwomenstalk.com/awesome-nail-art-trends/)
 - [7 Flirty and Fun Nail Polishes for Valentine's Day...](https://nails.allwomenstalk.com/flirty-and-fun-nail-polishes-for-valentines-day/)
 

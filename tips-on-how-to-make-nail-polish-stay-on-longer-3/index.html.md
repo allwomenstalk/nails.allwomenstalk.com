@@ -58,14 +58,14 @@ If you get frustrated with your nails chipping and wearing down, please give the
 
 - [monie love feet](https://nails.allwomenstalk.com/tips-for-banishing-ingrown-toenails-once-and-for-all/)
 - [nailtiques formula 1 vs 2](https://nails.allwomenstalk.com/nail-strengthening-products-youll-write-home-about/)
-- [manicure steps (with pictures)](https://nails.allwomenstalk.com/simple-steps-for-a-manicure-that-is-flawless/)
-- [nail tips gel](https://nails.allwomenstalk.com/tips-for-maintaining-your-gel-nails/)
 - [good nail care can prevent](https://nails.allwomenstalk.com/nagging-nail-care-issues-solved/)
-- [how to keep healthy toenails](https://nails.allwomenstalk.com/easy-and-effective-ways-to-get-healthy-toenails/)
 - [salon manicure at home](https://nails.allwomenstalk.com/quick-tips-for-the-perfect-at-home-manicure/)
-- [how to paint artificial nails](https://nails.allwomenstalk.com/tips-for-painting-your-nails-that-will-change-your-life/)
+- [nail tips gel](https://nails.allwomenstalk.com/tips-for-maintaining-your-gel-nails/)
+- [how to keep healthy toenails](https://nails.allwomenstalk.com/easy-and-effective-ways-to-get-healthy-toenails/)
+- [manicure steps (with pictures)](https://nails.allwomenstalk.com/simple-steps-for-a-manicure-that-is-flawless/)
 - [what can you use for nail polish remover](https://diy.allwomenstalk.com/alternative-uses-for-nail-polish-remover/)
 - [what makes nails grow](https://nails.allwomenstalk.com/reasons-why-your-nails-arent-growing-properly/)
+- [how to paint artificial nails](https://nails.allwomenstalk.com/tips-for-painting-your-nails-that-will-change-your-life/)
 - [7 Tips on Maintaining Good Fingernails ...](https://allwomenstalk.com/7-tips-on-maintaining-good-fingernails/)
 - [7 Ways to Strengthen Your Nails ...](https://allwomenstalk.com/7-ways-to-strengthen-your-nails/)
 

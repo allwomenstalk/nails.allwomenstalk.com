@@ -44,16 +44,16 @@ Aren't these gorgeous? Tell us which ones you liked best! And if your fav nail a
 
 ## Related Posts
 
-- [cute oval nails](https://nails.allwomenstalk.com/of-todays-extraordinary-nail-inspo-for-women-who-just-love-polish/)
-- [nail inspi](https://nails.allwomenstalk.com/of-todays-brilliant-nail-inspo-for-girls-who-care-about-their-nails/)
-- [love nails design](https://nails.allwomenstalk.com/of-todays-astonishing-nail-inspo-for-women-who-just-love-nails/)
-- [nails inspo for dark skin](https://nails.allwomenstalk.com/of-todays-undeniable-nail-inspo-for-women-who-have-killer-nails/)
-- [astonishing nails](https://nails.allwomenstalk.com/of-todays-astonishing-nail-inspo-for-women-who-can-not-live-without-a-mani/)
-- [thistle nail art](https://nails.allwomenstalk.com/of-todays-provocative-nail-inspo-for-women-who-never-leave-the-house-without-a-mani/)
-- [irresistible nails](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram-5/)
 - [billionails](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram-8/)
-- [naominailsnyc](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram-4/)
+- [astonishing nails](https://nails.allwomenstalk.com/of-todays-astonishing-nail-inspo-for-women-who-can-not-live-without-a-mani/)
+- [love nails design](https://nails.allwomenstalk.com/of-todays-astonishing-nail-inspo-for-women-who-just-love-nails/)
+- [nail inspi](https://nails.allwomenstalk.com/of-todays-brilliant-nail-inspo-for-girls-who-care-about-their-nails/)
+- [nails inspo for dark skin](https://nails.allwomenstalk.com/of-todays-undeniable-nail-inspo-for-women-who-have-killer-nails/)
+- [thistle nail art](https://nails.allwomenstalk.com/of-todays-provocative-nail-inspo-for-women-who-never-leave-the-house-without-a-mani/)
+- [cute oval nails](https://nails.allwomenstalk.com/of-todays-extraordinary-nail-inspo-for-women-who-just-love-polish/)
+- [irresistible nails](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram-5/)
 - [natural nails inspo](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram-7/)
+- [naominailsnyc](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram-4/)
 - [22 of Today's Heavenly Nail Inspo for Girls Who Ar...](https://nails.allwomenstalk.com/of-todays-heavenly-nail-inspo-for-girls-who-are-always-on-trend/)
 - [14 of Today's Drool Worthy 🤤 Nail Inspo for Women...](https://nails.allwomenstalk.com/of-todays-drool-worthy-nail-inspo-for-women-who-want-an-incredible-mani-inspo/)
 

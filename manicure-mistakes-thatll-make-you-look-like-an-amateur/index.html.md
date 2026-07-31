@@ -42,14 +42,14 @@ These are some mistakes that you can avoid making when you give yourself a manic
 
 ## Related Posts
 
-- [best products to strengthen nails](https://nails.allwomenstalk.com/the-secrets-to-strengthening-your-nails/)
-- [what type of fake nails are the strongest](https://nails.allwomenstalk.com/which-type-of-false-nails-are-right-for-you/)
-- [clear sparkly acrylic nails](https://nails.allwomenstalk.com/tips-for-applying-fake-nails-at-home/)
-- [why my nails are breaking](https://nails.allwomenstalk.com/your-nails-are-bound-to-break-if-you-do-these-things/)
-- [easy at home french manicure](https://nails.allwomenstalk.com/how-to-create-the-perfect-french-manicure/)
-- [how to stop a nail from splitting](https://nails.allwomenstalk.com/steps-to-stop-your-nails-from-splitting/)
 - [spiky fingernails](https://nails.allwomenstalk.com/signs-its-time-to-cut-your-nails-short/)
+- [easy at home french manicure](https://nails.allwomenstalk.com/how-to-create-the-perfect-french-manicure/)
+- [why my nails are breaking](https://nails.allwomenstalk.com/your-nails-are-bound-to-break-if-you-do-these-things/)
+- [what type of fake nails are the strongest](https://nails.allwomenstalk.com/which-type-of-false-nails-are-right-for-you/)
 - [does gel polish go bad](https://nails.allwomenstalk.com/most-women-dont-know-these-nail-polish-facts/)
+- [best products to strengthen nails](https://nails.allwomenstalk.com/the-secrets-to-strengthening-your-nails/)
+- [clear sparkly acrylic nails](https://nails.allwomenstalk.com/tips-for-applying-fake-nails-at-home/)
+- [how to stop a nail from splitting](https://nails.allwomenstalk.com/steps-to-stop-your-nails-from-splitting/)
 - [easy toothpick nail art](https://nails.allwomenstalk.com/nail-art-hacks-youll-be-glad-to-know/)
 - [swirl nail art with toothpick](https://nails.allwomenstalk.com/heres-why-you-need-to-marble-your-fingernails-right-away/)
 - [7 Fashion Faux-Pas to Avoid ...](https://allwomenstalk.com/7-fashion-faux-pas-to-avoid/)

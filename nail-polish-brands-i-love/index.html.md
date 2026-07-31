@@ -62,15 +62,15 @@ What are your personal best nail polish brands and is there a special color you 
 
 ## Related Posts
 
+- [2013 nail designs](https://nails.allwomenstalk.com/top-nail-design-trends-for/)
+- [metallic green nail polish](https://nails.allwomenstalk.com/magical-metallic-nail-polishes/)
+- [nail art decal](https://nails.allwomenstalk.com/best-nail-art-decals/)
+- [valentines day nail colors](https://nails.allwomenstalk.com/flirty-and-fun-nail-polishes-for-valentines-day/)
+- [chanel peridot nail polish](https://nails.allwomenstalk.com/statement-nail-polishes-for-every-collection/)
+- [celebrity nail polish](https://nails.allwomenstalk.com/gorgeous-celebrity-nail-polishes-to-try/)
+- [santa hat nails](https://nails.allwomenstalk.com/dessert-nail-art-tutorials-too-sweet-to-resist/)
 - [nifty nail reviews](https://nails.allwomenstalk.com/nifty-nail-polishes-i-cant-wait-to-wear/)
 - [nail polish that cracks when it dries](https://nails.allwomenstalk.com/best-crackle-nail-polishes/)
-- [chanel peridot nail polish](https://nails.allwomenstalk.com/statement-nail-polishes-for-every-collection/)
-- [santa hat nails](https://nails.allwomenstalk.com/dessert-nail-art-tutorials-too-sweet-to-resist/)
-- [2013 nail designs](https://nails.allwomenstalk.com/top-nail-design-trends-for/)
-- [valentines day nail colors](https://nails.allwomenstalk.com/flirty-and-fun-nail-polishes-for-valentines-day/)
-- [celebrity nail polish](https://nails.allwomenstalk.com/gorgeous-celebrity-nail-polishes-to-try/)
-- [nail art decal](https://nails.allwomenstalk.com/best-nail-art-decals/)
-- [metallic green nail polish](https://nails.allwomenstalk.com/magical-metallic-nail-polishes/)
 - [nail polish double colour](https://nails.allwomenstalk.com/on-trend-nail-polish-colors-for-spring/)
 - [Top 7 Skin Care Brands I Love ...](https://skincare.allwomenstalk.com/top-skin-care-brands-i-love/)
 - [7 Most Fashionable Nail Polishes of Today ...](https://allwomenstalk.com/7-most-fashionable-nail-polishes-of-today/)

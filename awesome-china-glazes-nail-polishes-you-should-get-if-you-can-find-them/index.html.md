@@ -56,16 +56,16 @@ These are some of my favorite China Glaze shades and if you’re good at nail ar
 
 ## Related Posts
 
-- [gel manicure designs short nails](https://nails.allwomenstalk.com/dynamic-looks-for-short-nails/)
-- [opi pops](https://makeup.allwomenstalk.com/opi-shades-to-make-your-nails-pop/)
+- [adore gel polish](https://nails.allwomenstalk.com/dazzling-manicures-youll-absolutely-adore/)
 - [decorative finger nails](https://beauty.allwomenstalk.com/fancy-nail-art-designs-that-youll-love-looking-at-all-day-long/)
+- [nail ideas for hawaii](https://nails.allwomenstalk.com/super-cute-ideas-for-summer-nail-art/)
+- [gel manicure designs short nails](https://nails.allwomenstalk.com/dynamic-looks-for-short-nails/)
+- [nail art pinterst](https://nails.allwomenstalk.com/must-follow-nail-art-pinterest-boards/)
+- [simple clear nail designs](https://nails.allwomenstalk.com/great-uses-for-clear-nail-polish-besides-your-nails/)
+- [opi pops](https://makeup.allwomenstalk.com/opi-shades-to-make-your-nails-pop/)
 - [pink nail polish color names](https://nails.allwomenstalk.com/gorgeous-nail-polish-colors-with-ridiculous-names/)
 - [best nail art youtube channels](https://nails.allwomenstalk.com/nail-art-vloggers-you-should-check-out/)
-- [simple clear nail designs](https://nails.allwomenstalk.com/great-uses-for-clear-nail-polish-besides-your-nails/)
-- [adore gel polish](https://nails.allwomenstalk.com/dazzling-manicures-youll-absolutely-adore/)
 - [fun nails for summer](https://nails.allwomenstalk.com/fun-nail-patterns-for-summer/)
-- [nail art pinterst](https://nails.allwomenstalk.com/must-follow-nail-art-pinterest-boards/)
-- [nail ideas for hawaii](https://nails.allwomenstalk.com/super-cute-ideas-for-summer-nail-art/)
 - [7 Most Fashionable Nail Polishes of Today ...](https://allwomenstalk.com/7-most-fashionable-nail-polishes-of-today/)
 - [7 Glitter Nail Polishes ...](https://allwomenstalk.com/glitter-nail-polishes/)
 

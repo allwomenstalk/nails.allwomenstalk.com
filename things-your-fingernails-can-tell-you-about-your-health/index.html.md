@@ -58,16 +58,16 @@ Do you have any of these nail troubles? What do you do about them?
 
 ## Related Posts
 
-- [marbling nail polish](https://nails.allwomenstalk.com/tutorials-thatll-teach-you-how-to-make-marble-nail-art/)
-- [how do i clean under my nails](https://nails.allwomenstalk.com/how-to-clean-underneath-your-nails/)
-- [how to make dots on nails without dotting tool](https://nails.allwomenstalk.com/how-to-make-your-own-nail-dotting-tool-with-household-items/)
-- [firefighter nail designs](https://nails.allwomenstalk.com/quick-tips-for-nail-care-and-polish/)
-- [nails growth tips](https://nails.allwomenstalk.com/tips-to-growing-long-nails-fast/)
-- [at home gel polish peels off](https://nails.allwomenstalk.com/heres-how-to-use-peel-off-nail-polish-the-right-way/)
 - [long exotic nails](https://nails.allwomenstalk.com/how-to-create-a-stella-mccartney-inspired-marble-manicure/)
-- [while analyzing sonia's features, you noticed that...](https://nails.allwomenstalk.com/how-to-create-fabulous-striped-nails-using-floss/)
+- [at home gel polish peels off](https://nails.allwomenstalk.com/heres-how-to-use-peel-off-nail-polish-the-right-way/)
 - [loreal riche stylo eye blinged brilliant](https://nails.allwomenstalk.com/this-video-will-show-you-how-to-paint-your-nails-perfectly/)
+- [nails growth tips](https://nails.allwomenstalk.com/tips-to-growing-long-nails-fast/)
+- [how do i clean under my nails](https://nails.allwomenstalk.com/how-to-clean-underneath-your-nails/)
+- [while analyzing sonia's features, you noticed that...](https://nails.allwomenstalk.com/how-to-create-fabulous-striped-nails-using-floss/)
 - [your boyfriend no pay for gel](https://nails.allwomenstalk.com/how-to-create-a-gel-manicure-at-home/)
+- [marbling nail polish](https://nails.allwomenstalk.com/tutorials-thatll-teach-you-how-to-make-marble-nail-art/)
+- [firefighter nail designs](https://nails.allwomenstalk.com/quick-tips-for-nail-care-and-polish/)
+- [how to make dots on nails without dotting tool](https://nails.allwomenstalk.com/how-to-make-your-own-nail-dotting-tool-with-household-items/)
 - [7 Signs You're in Good Health ...](https://health.allwomenstalk.com/7-signs-youre-in-good-health/)
 - [5 Major Health Issues You Should Be Aware of ...](https://allwomenstalk.com/5-major-health-issues-you-should-be-aware-of/)
 

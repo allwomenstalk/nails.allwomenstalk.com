@@ -55,16 +55,16 @@ Now sit back, relax, and take it easy while your polish dries completely. A DIY 
 
 ## Related Posts
 
-- [clear sparkly acrylic nails](https://nails.allwomenstalk.com/tips-for-applying-fake-nails-at-home/)
-- [nail polish smudges hours later](https://nails.allwomenstalk.com/manicure-mistakes-thatll-make-you-look-like-an-amateur/)
 - [nails of note flamingo square](https://nails.allwomenstalk.com/heres-how-to-wear-your-love-on-your-nails/)
-- [swirl nail art with toothpick](https://nails.allwomenstalk.com/heres-why-you-need-to-marble-your-fingernails-right-away/)
-- [how to do a perfect manicure](https://nails.allwomenstalk.com/you-must-see-these-tutorials-for-a-perfect-manicure/)
-- [why my nails are breaking](https://nails.allwomenstalk.com/your-nails-are-bound-to-break-if-you-do-these-things/)
 - [easy toothpick nail art](https://nails.allwomenstalk.com/nail-art-hacks-youll-be-glad-to-know/)
-- [dip in toenail](https://nails.allwomenstalk.com/this-is-why-you-should-try-dip-dying-your-fingernails/)
 - [how to stop a nail from splitting](https://nails.allwomenstalk.com/steps-to-stop-your-nails-from-splitting/)
+- [swirl nail art with toothpick](https://nails.allwomenstalk.com/heres-why-you-need-to-marble-your-fingernails-right-away/)
 - [easy at home french manicure](https://nails.allwomenstalk.com/how-to-create-the-perfect-french-manicure/)
+- [nail polish smudges hours later](https://nails.allwomenstalk.com/manicure-mistakes-thatll-make-you-look-like-an-amateur/)
+- [why my nails are breaking](https://nails.allwomenstalk.com/your-nails-are-bound-to-break-if-you-do-these-things/)
+- [how to do a perfect manicure](https://nails.allwomenstalk.com/you-must-see-these-tutorials-for-a-perfect-manicure/)
+- [dip in toenail](https://nails.allwomenstalk.com/this-is-why-you-should-try-dip-dying-your-fingernails/)
+- [clear sparkly acrylic nails](https://nails.allwomenstalk.com/tips-for-applying-fake-nails-at-home/)
 - [7 Little Known Tips for a Perfect Manicure ...](https://allwomenstalk.com/7-little-known-tips-for-a-perfect-manicure/)
 - [7 Tips for an at-Home French Manicure ...](https://allwomenstalk.com/7-tips-for-an-at-home-french-manicure/)
 

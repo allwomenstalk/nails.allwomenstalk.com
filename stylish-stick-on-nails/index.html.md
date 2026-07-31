@@ -187,16 +187,16 @@ I certainly prefer stick on nails over traditional manicures, but not everyone r
 
 ## Related Posts
 
-- [sally hansen miracle gel fall colors](https://nails.allwomenstalk.com/nail-colors-for-fall/)
-- [nail art tool kit](https://nails.allwomenstalk.com/nail-tools-for-the-best-manicures-and-nail-art/)
-- [15 Nail Colors to Add to Your Wardrobe This Spring...](https://nails.allwomenstalk.com/nail-colors-to-add-to-your-wardrobe-this-spring/)
-- [These Nails Will Push You to Get a Next-Level Mani...](https://nails.allwomenstalk.com/these-nails-will-push-you-to-get-a-next-level-manicure/)
 - [The Most Creative Uses for Nail Polish You'll Ever...](https://nails.allwomenstalk.com/creative-uses-for-nail-polish/)
-- [short nail art inspo](https://nails.allwomenstalk.com/you-need-to-try-this-nail-art-for-short-nails/)
-- [color riche le smoky bottomless java](https://nails.allwomenstalk.com/which-nail-design-is-perfect-for-you/)
-- [today's inspo](https://nails.allwomenstalk.com/instagram-nail-accounts-you-should-follow/)
+- [These Nails Will Push You to Get a Next-Level Mani...](https://nails.allwomenstalk.com/these-nails-will-push-you-to-get-a-next-level-manicure/)
 - [Fall's Must-Have Nail Polish & Watch Combos ...](https://beauty.allwomenstalk.com/falls-must-have-nail-polish-watch-combos/)
 - [15 Pink Polishes That Are Perfect for a Valentine'...](https://nails.allwomenstalk.com/pink-polishes-that-are-perfect-for-a-valentines-day-date/)
+- [nail art tool kit](https://nails.allwomenstalk.com/nail-tools-for-the-best-manicures-and-nail-art/)
+- [color riche le smoky bottomless java](https://nails.allwomenstalk.com/which-nail-design-is-perfect-for-you/)
+- [15 Nail Colors to Add to Your Wardrobe This Spring...](https://nails.allwomenstalk.com/nail-colors-to-add-to-your-wardrobe-this-spring/)
+- [sally hansen miracle gel fall colors](https://nails.allwomenstalk.com/nail-colors-for-fall/)
+- [short nail art inspo](https://nails.allwomenstalk.com/you-need-to-try-this-nail-art-for-short-nails/)
+- [today's inspo](https://nails.allwomenstalk.com/instagram-nail-accounts-you-should-follow/)
 - [7 Best Nail Art Decals ...](https://nails.allwomenstalk.com/best-nail-art-decals/)
 - [21 Cute and Affordable Nail Polish Options ...](https://nails.allwomenstalk.com/cute-and-affordable-nail-polish-options/)
 

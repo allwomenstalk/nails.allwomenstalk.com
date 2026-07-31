@@ -155,15 +155,15 @@ got the travel bug now? I do! Where are you vacationing this summer? What will y
 
 ## Related Posts
 
-- [rainbow nail design](https://nails.allwomenstalk.com/rainbow-nail-art-to-make-you-smile/)
-- [nail inspos](https://nails.allwomenstalk.com/check-out-this-new-nail-trend-the-bubble-manicure/)
-- [nail.design ideas 2023](https://nails.allwomenstalk.com/really-cool-sponged-nail-art-ideas-to-rock-your-world/)
-- [violet nails design](https://nails.allwomenstalk.com/metallic-nail-art-ideas-that-will-rock-your-world/)
-- [cute nail cartoon](https://nails.allwomenstalk.com/really-cool-manga-nails-for-the-comic-book-lover-in-you/)
-- [nail color summer](https://nails.allwomenstalk.com/matte-nail-polish-colors-to-spring-for-this-summer/)
-- [summer nail](https://nails.allwomenstalk.com/white-hot-nails-for-summertime/)
-- [essie blood red nail polish](https://nails.allwomenstalk.com/heres-how-to-nail-the-red-polish-look-for-this-summer/)
 - [pretty girls nails](https://nails.allwomenstalk.com/youll-scream-for-these-ice-cream-colored-nails/)
+- [nail color summer](https://nails.allwomenstalk.com/matte-nail-polish-colors-to-spring-for-this-summer/)
+- [nail inspos](https://nails.allwomenstalk.com/check-out-this-new-nail-trend-the-bubble-manicure/)
+- [rainbow nail design](https://nails.allwomenstalk.com/rainbow-nail-art-to-make-you-smile/)
+- [essie blood red nail polish](https://nails.allwomenstalk.com/heres-how-to-nail-the-red-polish-look-for-this-summer/)
+- [violet nails design](https://nails.allwomenstalk.com/metallic-nail-art-ideas-that-will-rock-your-world/)
+- [nail.design ideas 2023](https://nails.allwomenstalk.com/really-cool-sponged-nail-art-ideas-to-rock-your-world/)
+- [cute nail cartoon](https://nails.allwomenstalk.com/really-cool-manga-nails-for-the-comic-book-lover-in-you/)
+- [summer nail](https://nails.allwomenstalk.com/white-hot-nails-for-summertime/)
 - [billie eilish nails design](https://nails.allwomenstalk.com/awesome-80s-nail-art-that-will-take-you-back-to-another-era/)
 - [7 Amazing Nail Appliqués to Try This Fall ...](https://nails.allwomenstalk.com/amazing-nail-appliques-to-try-this-fall/)
 - [7 Best Nail Art Kits to Try This Summer ...](https://nails.allwomenstalk.com/best-nail-art-kits-to-try-this-summer/)

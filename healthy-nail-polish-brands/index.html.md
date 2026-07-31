@@ -40,16 +40,16 @@ Orly makes some really amazing permeable polishes that help your nails to breath
 
 ## Related Posts
 
+- [negative space nail ideas](https://nails.allwomenstalk.com/negative-space-is-the-new-ig-hot-nail-trend/)
+- [irresistible nails](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram-5/)
 - [nauls inspo](https://nails.allwomenstalk.com/nail-inspiration-from-instagram/)
+- [that girl nail inspo](https://nails.allwomenstalk.com/hottest-nail-inspiration-on-instagram/)
 - [fall season nail colors](https://nails.allwomenstalk.com/of-the-most-beautiful-fall-season-nail-polish-colors/)
+- [easter nails different colors](https://nails.allwomenstalk.com/these-nail-art-patterns-will-make-your-easter-holiday-something-really-special/)
+- [nail inspi](https://nails.allwomenstalk.com/of-todays-brilliant-nail-inspo-for-girls-who-care-about-their-nails/)
+- [dolls nails](https://nails.allwomenstalk.com/of-todays-mesmerizing-nail-inspo-for-confident-dolls/)
 - [acrylic nails vs dip](https://nails.allwomenstalk.com/gel-acrylic-or-dip-which-gives-the-best-nails/)
 - [natural nails inspo](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram-7/)
-- [irresistible nails](https://nails.allwomenstalk.com/best-nail-accounts-on-instagram-5/)
-- [negative space nail ideas](https://nails.allwomenstalk.com/negative-space-is-the-new-ig-hot-nail-trend/)
-- [that girl nail inspo](https://nails.allwomenstalk.com/hottest-nail-inspiration-on-instagram/)
-- [dolls nails](https://nails.allwomenstalk.com/of-todays-mesmerizing-nail-inspo-for-confident-dolls/)
-- [nail inspi](https://nails.allwomenstalk.com/of-todays-brilliant-nail-inspo-for-girls-who-care-about-their-nails/)
-- [easter nails different colors](https://nails.allwomenstalk.com/these-nail-art-patterns-will-make-your-easter-holiday-something-really-special/)
 - [7 Most Fashionable Nail Polishes of Today ...](https://allwomenstalk.com/7-most-fashionable-nail-polishes-of-today/)
 - [Top 7 Nail Polish Brands ...](https://allwomenstalk.com/top-7-nail-polish-brands/)
 

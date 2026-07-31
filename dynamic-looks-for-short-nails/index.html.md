@@ -236,16 +236,16 @@ So you don't have to have super long nails to rock a gorgeous manicure! Do you h
 
 ## Related Posts
 
-- [sally hansen iridescent nail polish](https://nails.allwomenstalk.com/popular-nail-polishes-from-sally-hansen-you-should-have-in-your-collection/)
-- [simple clear nail designs](https://nails.allwomenstalk.com/great-uses-for-clear-nail-polish-besides-your-nails/)
-- [pastel french tips](https://nails.allwomenstalk.com/fabulous-french-tip-designs/)
-- [pedi colour](https://nails.allwomenstalk.com/magnificent-mani-pedi-color-pairings-to-make-you-smile/)
-- [color riche le stylo smoky glistening garnet](https://nails.allwomenstalk.com/eclectic-nail-trends-to-try-this-summer/)
-- [diy nails designs](https://nails.allwomenstalk.com/wicked-diy-nail-designs-for-the-back-to-school-season/)
 - [pure ice nail polish](https://nails.allwomenstalk.com/fall-for-new-pure-ice-fall-nail-colors/)
+- [bunty's jewelers](https://nails.allwomenstalk.com/top-nail-trends-for-fall/)
+- [sally hansen iridescent nail polish](https://nails.allwomenstalk.com/popular-nail-polishes-from-sally-hansen-you-should-have-in-your-collection/)
+- [color riche le stylo smoky glistening garnet](https://nails.allwomenstalk.com/eclectic-nail-trends-to-try-this-summer/)
+- [pedi colour](https://nails.allwomenstalk.com/magnificent-mani-pedi-color-pairings-to-make-you-smile/)
+- [pastel french tips](https://nails.allwomenstalk.com/fabulous-french-tip-designs/)
 - [gucci red nail polish](https://nails.allwomenstalk.com/mani-mania-heres-guccis-fall-nail-polish-line/)
 - [essie terracotta nail polish](https://nails.allwomenstalk.com/show-stopping-shades-of-nail-polish-for-your-next-pedicure/)
-- [bunty's jewelers](https://nails.allwomenstalk.com/top-nail-trends-for-fall/)
+- [simple clear nail designs](https://nails.allwomenstalk.com/great-uses-for-clear-nail-polish-besides-your-nails/)
+- [diy nails designs](https://nails.allwomenstalk.com/wicked-diy-nail-designs-for-the-back-to-school-season/)
 - [7 Trendy Nail Designs for Short Nails ...](https://nails.allwomenstalk.com/trendy-nail-designs-for-short-nails/)
 - [39 Gorgeous Nail Hacks to Simplify Your Polishing ...](https://nails.allwomenstalk.com/awesome-nails-hacks-that-make-painting-your-nails-a-breeze/)
 
