@@ -82,16 +82,16 @@ Do you have a go-to manicure or do you prefer painting your nails using a new de
 
 ## Related Posts
 
-- [sally hansen miracle gel fall colors](https://nails.allwomenstalk.com/nail-colors-for-fall/)
+- [braltus inhaler](https://nails.allwomenstalk.com/of-todays-heavenly-nail-inspo-for-girls-looking-to-play-up-their-nails/)
 - [let's be friends dip](https://nails.allwomenstalk.com/best-gel-nails/)
 - [tiffany blue nails](https://nails.allwomenstalk.com/best-blue-nails/)
-- [mani inspo](https://nails.allwomenstalk.com/of-todays-swoon-worthy-nail-inspo-for-mani-obsessed-people/)
 - [today's inspo](https://nails.allwomenstalk.com/instagram-nail-accounts-you-should-follow/)
 - [le stylo endless pearl](https://nails.allwomenstalk.com/of-todays-charming-nail-inspo-for-dolls-who-are-taking-care-of-their-nails/)
+- [sally hansen miracle gel fall colors](https://nails.allwomenstalk.com/nail-colors-for-fall/)
 - [why does my nail polish have scratches](https://nails.allwomenstalk.com/of-todays-extraordinary-nail-inspo-for-dolls-who-are-taking-care-of-their-nails/)
-- [braltus inhaler](https://nails.allwomenstalk.com/of-todays-heavenly-nail-inspo-for-girls-looking-to-play-up-their-nails/)
-- [long nails sharp](https://nails.allwomenstalk.com/best-long-nails/)
 - [loreal paris riche le stylo smoky eye golden](https://nails.allwomenstalk.com/of-todays-amazing-nail-inspo-for-women-who-really-know-beauty/)
+- [long nails sharp](https://nails.allwomenstalk.com/best-long-nails/)
+- [mani inspo](https://nails.allwomenstalk.com/of-todays-swoon-worthy-nail-inspo-for-mani-obsessed-people/)
 - [Manicure ...](https://allwomenstalk.com/manicure/)
 - [Magnificent Mani-Pedi Color Combos to Make You Smi...](https://nails.allwomenstalk.com/magnificent-mani-pedi-color-pairings-to-make-you-smile/)
 

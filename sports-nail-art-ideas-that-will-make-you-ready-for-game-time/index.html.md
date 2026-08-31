@@ -253,16 +253,16 @@ Have you ever done sports nail art? Which of these would be your first choice?
 
 ## Related Posts
 
-- [gelish nail polish ideas](https://nails.allwomenstalk.com/flirty-spring-nail-art-ideas-for-nail-polish-addicts/)
-- [marvel character with long nails](https://nails.allwomenstalk.com/these-are-the-best-looking-superhero-nail-art-designs-in-the-world/)
-- [red pink white nail designs](https://nails.allwomenstalk.com/here-are-the-coolest-polka-dot-nail-art-patterns-in-the-world/)
 - [southwestern nails](https://nails.allwomenstalk.com/wait-till-you-see-these-tribal-nail-art-patterns/)
-- [art designs for nails](https://nails.allwomenstalk.com/this-is-what-striped-nail-art-looks-like-fabulous-ideas/)
 - [ocean themed nail art](https://nails.allwomenstalk.com/really-cool-sea-creature-nail-art-patterns/)
 - [shapes in polish](https://nails.allwomenstalk.com/make-your-polish-even-prettier-with-these-different-shapes-to-file-your-nails/)
-- [xmas nails](https://nails.allwomenstalk.com/spread-the-luck-nail-designs-for-st-patricks-day/)
 - [steampunk claws](https://nails.allwomenstalk.com/steampunk-nails-that-will-blow-your-mind/)
+- [gelish nail polish ideas](https://nails.allwomenstalk.com/flirty-spring-nail-art-ideas-for-nail-polish-addicts/)
+- [xmas nails](https://nails.allwomenstalk.com/spread-the-luck-nail-designs-for-st-patricks-day/)
 - [easy do it yourself nail art](https://nails.allwomenstalk.com/easy-nail-art-designs-for-lazy-ladies/)
+- [marvel character with long nails](https://nails.allwomenstalk.com/these-are-the-best-looking-superhero-nail-art-designs-in-the-world/)
+- [art designs for nails](https://nails.allwomenstalk.com/this-is-what-striped-nail-art-looks-like-fabulous-ideas/)
+- [red pink white nail designs](https://nails.allwomenstalk.com/here-are-the-coolest-polka-dot-nail-art-patterns-in-the-world/)
 - [9 Easy Nail Ideas for Spring ...](https://nails.allwomenstalk.com/easy-nail-ideas-for-spring/)
 - [24 Fancy Nail Art Designs That You'll Love Looking...](https://beauty.allwomenstalk.com/fancy-nail-art-designs-that-youll-love-looking-at-all-day-long/)
 

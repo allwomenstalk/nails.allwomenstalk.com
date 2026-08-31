@@ -42,16 +42,16 @@ Do you visit the salon or are you a strictly DIY manicure gal?
 
 ## Related Posts
 
-- [light gains make a heavy purse](https://bags.allwomenstalk.com/steps-to-lightening-up-your-heavy-purse/)
-- [online shopping save money](https://money.allwomenstalk.com/ways-to-save-money-for-girls-who-love-online-shopping/)
-- [examples of time savers](https://lifestyle.allwomenstalk.com/simple-time-savers-to-help-you-save-your-day/)
+- [black friday shopping tips](https://money.allwomenstalk.com/savvy-shopping-tips-for-a-successful-black-friday-excursion/)
 - [save money better girls are coming](https://money.allwomenstalk.com/hacks-to-save-money-at-starbucks-for-girls-who-are-trying-to-save/)
-- [salon saving](https://hair.allwomenstalk.com/how-to-save-money-at-the-hair-salon/)
+- [grocery list for young adults](https://teen.allwomenstalk.com/real-world-101-how-to-grocery-shop-like-an-adult/)
+- [light gains make a heavy purse](https://bags.allwomenstalk.com/steps-to-lightening-up-your-heavy-purse/)
 - [semiannual sale](https://money.allwomenstalk.com/annual-sales-to-start-saving-up-for/)
 - [save money on textbooks](https://money.allwomenstalk.com/remarkable-ways-to-save-money-on-textbooks-every-college-student-should-know/)
+- [examples of time savers](https://lifestyle.allwomenstalk.com/simple-time-savers-to-help-you-save-your-day/)
+- [salon saving](https://hair.allwomenstalk.com/how-to-save-money-at-the-hair-salon/)
+- [online shopping save money](https://money.allwomenstalk.com/ways-to-save-money-for-girls-who-love-online-shopping/)
 - [she is a smart girl](https://money.allwomenstalk.com/things-every-smart-girl-does-when-shopping-in-the-sales/)
-- [black friday shopping tips](https://money.allwomenstalk.com/savvy-shopping-tips-for-a-successful-black-friday-excursion/)
-- [grocery list for young adults](https://teen.allwomenstalk.com/real-world-101-how-to-grocery-shop-like-an-adult/)
 - [Pedicure Tips ...](https://allwomenstalk.com/pedicure-tips/)
 - [Pedicure Safety Tips ...](https://allwomenstalk.com/pedicure-safety-tips/)
 

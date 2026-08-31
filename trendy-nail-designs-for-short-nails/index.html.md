@@ -42,15 +42,15 @@ Short nails or not, despite the length, your nails can look pretty. I have tried
 
 ## Related Posts
 
-- [china glaze polish colors](https://nails.allwomenstalk.com/awesome-china-glazes-nail-polishes-you-should-get-if-you-can-find-them/)
-- [i love me nails](https://nails.allwomenstalk.com/quirky-nail-designs-you-will-love/)
 - [decorative finger nails](https://beauty.allwomenstalk.com/fancy-nail-art-designs-that-youll-love-looking-at-all-day-long/)
-- [adore gel polish](https://nails.allwomenstalk.com/dazzling-manicures-youll-absolutely-adore/)
-- [cheapest nail polish brands](https://nails.allwomenstalk.com/bargain-nail-polish-brands-to-try-out/)
-- [color riche smoky neon skirt](https://nails.allwomenstalk.com/new-essie-colors-you-must-try/)
-- [turquoise and blue nails](https://nails.allwomenstalk.com/turquoise-nail-polishes-to-shake-up-your-look/)
 - [stylish manicure](https://nails.allwomenstalk.com/stylish-nail-tutorials-to-celebrate-your-anniversary/)
+- [china glaze polish colors](https://nails.allwomenstalk.com/awesome-china-glazes-nail-polishes-you-should-get-if-you-can-find-them/)
+- [adore gel polish](https://nails.allwomenstalk.com/dazzling-manicures-youll-absolutely-adore/)
+- [color riche smoky neon skirt](https://nails.allwomenstalk.com/new-essie-colors-you-must-try/)
+- [cheapest nail polish brands](https://nails.allwomenstalk.com/bargain-nail-polish-brands-to-try-out/)
+- [i love me nails](https://nails.allwomenstalk.com/quirky-nail-designs-you-will-love/)
 - [opi pops](https://makeup.allwomenstalk.com/opi-shades-to-make-your-nails-pop/)
+- [turquoise and blue nails](https://nails.allwomenstalk.com/turquoise-nail-polishes-to-shake-up-your-look/)
 - [pink nail polish color names](https://nails.allwomenstalk.com/gorgeous-nail-polish-colors-with-ridiculous-names/)
 - [9 Awesome Nail Art Trends ...](https://makeup.allwomenstalk.com/awesome-nail-art-trends/)
 - [10 Top Nail Design Trends for 2013 ...](https://nails.allwomenstalk.com/top-nail-design-trends-for/)

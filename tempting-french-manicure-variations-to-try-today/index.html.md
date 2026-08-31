@@ -56,16 +56,16 @@ I think all of these are quite pretty, although I only like seeing the inverted 
 
 ## Related Posts
 
-- [what is the best top coat for acrylic nails](https://nails.allwomenstalk.com/best-top-coats-to-top-off-your-marvelous-mani/)
-- [zooey dechanel engagement ring](https://nails.allwomenstalk.com/electric-zooey-deschanel-inspired-nail-designs/)
-- [glitter pink nail designs](https://nails.allwomenstalk.com/pretty-pink-nail-designs-you-will-fawn-over/)
-- [gothic red nails](https://nails.allwomenstalk.com/fierce-red-manicures-you-need-to-try/)
-- [nail ideas for 10 year olds](https://nails.allwomenstalk.com/intricate-nail-designs-to-rock-at-school/)
 - [trendy nail colours](https://nails.allwomenstalk.com/trendy-nail-polish-colors-you-absolutely-must-try-now/)
 - [unique toe rings](https://jewelry.allwomenstalk.com/playful-toe-rings-that-will-perfect-your-pedicure/)
-- [spring inspired nails](https://nails.allwomenstalk.com/fresh-spring-inspired-nail-tutorials/)
-- [blue nails with black designs](https://nails.allwomenstalk.com/gorgeous-blue-nail-designs-to-sport-this-season/)
+- [gothic red nails](https://nails.allwomenstalk.com/fierce-red-manicures-you-need-to-try/)
+- [zooey dechanel engagement ring](https://nails.allwomenstalk.com/electric-zooey-deschanel-inspired-nail-designs/)
 - [edgy rock nails](https://nails.allwomenstalk.com/edgy-manicures-to-rock-on-your-first-date/)
+- [nail ideas for 10 year olds](https://nails.allwomenstalk.com/intricate-nail-designs-to-rock-at-school/)
+- [blue nails with black designs](https://nails.allwomenstalk.com/gorgeous-blue-nail-designs-to-sport-this-season/)
+- [glitter pink nail designs](https://nails.allwomenstalk.com/pretty-pink-nail-designs-you-will-fawn-over/)
+- [spring inspired nails](https://nails.allwomenstalk.com/fresh-spring-inspired-nail-tutorials/)
+- [what is the best top coat for acrylic nails](https://nails.allwomenstalk.com/best-top-coats-to-top-off-your-marvelous-mani/)
 - [7 Evening Hairstyle Ideas to Try out ...](https://hair.allwomenstalk.com/evening-hairstyle-ideas-to-try-out/)
 - [7 Gorgeous Pedicure Techniques …](https://allwomenstalk.com/gorgeous-pedicure-techniques/)
 

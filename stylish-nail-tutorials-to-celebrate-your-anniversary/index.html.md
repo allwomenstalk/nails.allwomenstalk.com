@@ -42,16 +42,16 @@ These flawless DIY nail tutorials are just what the love doctor ordered. I love 
 
 ## Related Posts
 
-- [adore gel polish](https://nails.allwomenstalk.com/dazzling-manicures-youll-absolutely-adore/)
-- [fun nails for summer](https://nails.allwomenstalk.com/fun-nail-patterns-for-summer/)
-- [opi pops](https://makeup.allwomenstalk.com/opi-shades-to-make-your-nails-pop/)
-- [nail art pinterst](https://nails.allwomenstalk.com/must-follow-nail-art-pinterest-boards/)
-- [gel manicure designs short nails](https://nails.allwomenstalk.com/dynamic-looks-for-short-nails/)
-- [pink nail polish color names](https://nails.allwomenstalk.com/gorgeous-nail-polish-colors-with-ridiculous-names/)
-- [china glaze polish colors](https://nails.allwomenstalk.com/awesome-china-glazes-nail-polishes-you-should-get-if-you-can-find-them/)
 - [decorative finger nails](https://beauty.allwomenstalk.com/fancy-nail-art-designs-that-youll-love-looking-at-all-day-long/)
-- [best nail art youtube channels](https://nails.allwomenstalk.com/nail-art-vloggers-you-should-check-out/)
+- [adore gel polish](https://nails.allwomenstalk.com/dazzling-manicures-youll-absolutely-adore/)
+- [nail art pinterst](https://nails.allwomenstalk.com/must-follow-nail-art-pinterest-boards/)
+- [opi pops](https://makeup.allwomenstalk.com/opi-shades-to-make-your-nails-pop/)
 - [nail ideas for hawaii](https://nails.allwomenstalk.com/super-cute-ideas-for-summer-nail-art/)
+- [china glaze polish colors](https://nails.allwomenstalk.com/awesome-china-glazes-nail-polishes-you-should-get-if-you-can-find-them/)
+- [fun nails for summer](https://nails.allwomenstalk.com/fun-nail-patterns-for-summer/)
+- [pink nail polish color names](https://nails.allwomenstalk.com/gorgeous-nail-polish-colors-with-ridiculous-names/)
+- [best nail art youtube channels](https://nails.allwomenstalk.com/nail-art-vloggers-you-should-check-out/)
+- [gel manicure designs short nails](https://nails.allwomenstalk.com/dynamic-looks-for-short-nails/)
 - [5 Ways to Celebrate Your Wedding Anniversary ...](https://wedding.allwomenstalk.com/5-ways-to-celebrate-your-wedding-anniversary/)
 - [7 Ideas for an Anniversary ...](https://allwomenstalk.com/7-ideas-for-an-anniversary/)
 

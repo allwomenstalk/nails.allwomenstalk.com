@@ -42,16 +42,16 @@ All of these nail designs are out of this world! What are your favorite designs 
 
 ## Related Posts
 
-- [unique toe rings](https://jewelry.allwomenstalk.com/playful-toe-rings-that-will-perfect-your-pedicure/)
-- [greyish purple nails](https://nails.allwomenstalk.com/nail-color-combinations-that-look-divine/)
-- [spring inspired nails](https://nails.allwomenstalk.com/fresh-spring-inspired-nail-tutorials/)
-- [punk rock nail designs](https://nails.allwomenstalk.com/grungy-nail-designs-that-are-too-hot-to-handle/)
-- [what is the best top coat for acrylic nails](https://nails.allwomenstalk.com/best-top-coats-to-top-off-your-marvelous-mani/)
 - [blue nails with black designs](https://nails.allwomenstalk.com/gorgeous-blue-nail-designs-to-sport-this-season/)
+- [what is the best top coat for acrylic nails](https://nails.allwomenstalk.com/best-top-coats-to-top-off-your-marvelous-mani/)
 - [trendy nail colours](https://nails.allwomenstalk.com/trendy-nail-polish-colors-you-absolutely-must-try-now/)
 - [fresh nail designs](https://nails.allwomenstalk.com/fresh-nail-tutorials-for-easter/)
-- [zooey dechanel engagement ring](https://nails.allwomenstalk.com/electric-zooey-deschanel-inspired-nail-designs/)
+- [punk rock nail designs](https://nails.allwomenstalk.com/grungy-nail-designs-that-are-too-hot-to-handle/)
+- [greyish purple nails](https://nails.allwomenstalk.com/nail-color-combinations-that-look-divine/)
+- [unique toe rings](https://jewelry.allwomenstalk.com/playful-toe-rings-that-will-perfect-your-pedicure/)
 - [edgy rock nails](https://nails.allwomenstalk.com/edgy-manicures-to-rock-on-your-first-date/)
+- [zooey dechanel engagement ring](https://nails.allwomenstalk.com/electric-zooey-deschanel-inspired-nail-designs/)
+- [spring inspired nails](https://nails.allwomenstalk.com/fresh-spring-inspired-nail-tutorials/)
 - [7 Best Blogs on Nail Art ...](https://allwomenstalk.com/best-blogs-on-nail-art/)
 - [9 Awesome Nail Art Trends ...](https://makeup.allwomenstalk.com/awesome-nail-art-trends/)
 

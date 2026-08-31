@@ -140,16 +140,16 @@ Will you do Thanksgiving nail art this year? Which design is your favorite?
 
 ## Related Posts
 
-- [winter nail art](https://nails.allwomenstalk.com/winter-nail-art-thats-gorgeous-and-glittery/)
-- [funky nail polish](https://nails.allwomenstalk.com/use-these-funky-colors-to-give-your-nails-some-personality/)
-- [feathers nails](https://nails.allwomenstalk.com/the-fiercest-feather-nail-art-youll-ever-see/)
-- [holly xmas nails](https://nails.allwomenstalk.com/apply-this-christmas-nail-art-before-your-holiday-party/)
-- [nail trend](https://nails.allwomenstalk.com/love-or-hate-the-nail-trends-of-that-divided-opinion/)
-- [pearl white color nails](https://nails.allwomenstalk.com/pearl-nail-art-thatll-make-you-look-elegant-all-around/)
-- [candy cane nail designs](https://nails.allwomenstalk.com/dont-go-through-winter-without-trying-snow-nail-art/)
 - [chanel solar nail polish](https://nails.allwomenstalk.com/glitter-polishes-that-will-perfectly-match-any-holiday-outfit/)
+- [feathers nails](https://nails.allwomenstalk.com/the-fiercest-feather-nail-art-youll-ever-see/)
+- [candy cane nail designs](https://nails.allwomenstalk.com/dont-go-through-winter-without-trying-snow-nail-art/)
+- [funky nail polish](https://nails.allwomenstalk.com/use-these-funky-colors-to-give-your-nails-some-personality/)
 - [animal with nails](https://nails.allwomenstalk.com/show-off-your-wild-side-with-these-animal-print-nails/)
 - [war nails](https://nails.allwomenstalk.com/awaken-the-force-with-star-wars-nail-art/)
+- [pearl white color nails](https://nails.allwomenstalk.com/pearl-nail-art-thatll-make-you-look-elegant-all-around/)
+- [holly xmas nails](https://nails.allwomenstalk.com/apply-this-christmas-nail-art-before-your-holiday-party/)
+- [winter nail art](https://nails.allwomenstalk.com/winter-nail-art-thats-gorgeous-and-glittery/)
+- [nail trend](https://nails.allwomenstalk.com/love-or-hate-the-nail-trends-of-that-divided-opinion/)
 - [7 Amazing Nail Appliqués to Try This Fall ...](https://nails.allwomenstalk.com/amazing-nail-appliques-to-try-this-fall/)
 - [7 Creative Thanksgiving Day Crafts for Kids ...](https://parenting.allwomenstalk.com/creative-thanksgiving-day-crafts-for-kids/)
 

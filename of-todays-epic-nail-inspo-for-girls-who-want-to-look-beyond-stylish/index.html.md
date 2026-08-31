@@ -46,15 +46,15 @@ Aren't these gorgeous? Tell us which ones you liked best! And if your fav nail a
 
 ## Related Posts
 
-- [hair inspo for girls](https://hair.allwomenstalk.com/hottest-hairstyles-on-instagram-7/)
+- [hair up inspo](https://hair.allwomenstalk.com/of-todays-magical-hair-inspo-for-women-who-want-their-hair-on-point/)
+- [beyond gorgeous](https://gardening.allwomenstalk.com/of-todays-beyond-gorgeous-flowers-inspo-for-girls-just-because/)
 - [micah gianneli height](https://fashion.allwomenstalk.com/of-todays-heavenly-ootd-photos-for-girls-who-want-to-rock-the-ootd/)
 - [ootd inspiration](https://fashion.allwomenstalk.com/of-todays-swoon-worthy-ootd-inspo-for-girls-who-love-the-best/)
+- [heavenly hair and nails](https://hair.allwomenstalk.com/best-hair-accounts-on-instagram-4/)
 - [epic flower](https://gardening.allwomenstalk.com/best-flower-accounts-on-instagram-6/)
-- [beyond gorgeous](https://gardening.allwomenstalk.com/of-todays-beyond-gorgeous-flowers-inspo-for-girls-just-because/)
+- [hair inspo for girls](https://hair.allwomenstalk.com/hottest-hairstyles-on-instagram-7/)
 - [nails band instagram](https://nails.allwomenstalk.com/of-todays-astounding-nail-inspo-for-girls-who-live-for-instagram/)
 - [vacation inspo](https://travel.allwomenstalk.com/of-todays-glamorous-travel-inspo-for-girls-who-need-a-break-from-the-real-world/)
-- [hair up inspo](https://hair.allwomenstalk.com/of-todays-magical-hair-inspo-for-women-who-want-their-hair-on-point/)
-- [heavenly hair and nails](https://hair.allwomenstalk.com/best-hair-accounts-on-instagram-4/)
 - [cat girl eclair factory](https://food.allwomenstalk.com/recipe-tutorials-on-instagram/)
 - [19 of Today's Awesome Nail Inspo for Women Who Wan...](https://nails.allwomenstalk.com/of-todays-awesome-nail-inspo-for-women-who-want-to-invest-in-their-look/)
 - [21 of Today's Top Nail Inspo for Girls in Need of ...](https://nails.allwomenstalk.com/of-todays-top-nail-inspo-for-girls-in-need-of-a-serious-inspo/)

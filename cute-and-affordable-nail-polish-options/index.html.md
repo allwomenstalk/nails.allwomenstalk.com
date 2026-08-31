@@ -140,16 +140,16 @@ There are so many brands of nail polish that offer color options priced at $4 an
 
 ## Related Posts
 
-- [nail fun facts](https://nails.allwomenstalk.com/fun-facts-about-nail-polish-brands-you-should-know/)
+- [christmas nail polish](https://nails.allwomenstalk.com/best-nail-polish-colours-for-the-holidays-this-year/)
 - [celebrities nail designs](https://nails.allwomenstalk.com/trendsetting-celebrities-who-are-known-for-their-nail-art-obsession/)
 - [manicure tutorials](https://nails.allwomenstalk.com/stylish-youtube-manicure-tutorials-to-watch-for-date-night/)
-- [loreal paris le stylo infinite sky](https://nails.allwomenstalk.com/of-the-prettiest-nail-colors-by-essie/)
-- [no design nails](https://nails.allwomenstalk.com/easy-nail-designs-and-art-for-amateurs/)
-- [nail polish double colour](https://nails.allwomenstalk.com/pretty-nail-polish-color-combinations-to-try/)
-- [sephora nail decals](https://nails.allwomenstalk.com/nail-stickers-for-a-fun-and-flirty-manicure/)
-- [glitter pink nail designs](https://nails.allwomenstalk.com/pretty-pink-nail-designs-you-will-fawn-over/)
-- [christmas nail polish](https://nails.allwomenstalk.com/best-nail-polish-colours-for-the-holidays-this-year/)
+- [nail fun facts](https://nails.allwomenstalk.com/fun-facts-about-nail-polish-brands-you-should-know/)
 - [glitter french tip pedicure](https://nails.allwomenstalk.com/tempting-french-manicure-variations-to-try-today/)
+- [glitter pink nail designs](https://nails.allwomenstalk.com/pretty-pink-nail-designs-you-will-fawn-over/)
+- [loreal paris le stylo infinite sky](https://nails.allwomenstalk.com/of-the-prettiest-nail-colors-by-essie/)
+- [sephora nail decals](https://nails.allwomenstalk.com/nail-stickers-for-a-fun-and-flirty-manicure/)
+- [nail polish double colour](https://nails.allwomenstalk.com/pretty-nail-polish-color-combinations-to-try/)
+- [no design nails](https://nails.allwomenstalk.com/easy-nail-designs-and-art-for-amateurs/)
 - [10+ Most Fashionable Nail Polishes ...](https://allwomenstalk.com/most-fashionable-nail-polishes-top-7/)
 - [7 Most Fashionable Nail Polishes of Today ...](https://allwomenstalk.com/7-most-fashionable-nail-polishes-of-today/)
 

@@ -42,16 +42,16 @@ These nail art tutorials seriously took me back to the good ol' days. Let yourse
 
 ## Related Posts
 
-- [nail polish 2014](https://nails.allwomenstalk.com/top-nail-polishes-of/)
-- [manicure for wedding](https://wedding.allwomenstalk.com/winter-wedding-nail-art-designs-for-your-special-day/)
-- [hanukkah inspired nails](https://nails.allwomenstalk.com/fantastic-hanukkah-nail-art-designs-to-help-you-celebrate/)
-- [new nails](https://nails.allwomenstalk.com/awesome-new-years-eve-nail-art-designs-to-help-you-ring-it-in/)
-- [nail designs for valentines](https://nails.allwomenstalk.com/fabulous-valentines-day-nail-art-designs/)
-- [festive fingernails](https://nails.allwomenstalk.com/fabulously-festive-nail-art-tutorials/)
-- [best nail artists](https://nails.allwomenstalk.com/nail-artists-to-follow-in-instagram/)
-- [black with pink glitter nails](https://nails.allwomenstalk.com/ideal-gifts-for-a-die-hard-nail-polish-fan/)
 - [trending holiday nail colors](https://nails.allwomenstalk.com/nail-polish-colors-for-the-holidays/)
+- [nail polish 2014](https://nails.allwomenstalk.com/top-nail-polishes-of/)
+- [hanukkah inspired nails](https://nails.allwomenstalk.com/fantastic-hanukkah-nail-art-designs-to-help-you-celebrate/)
+- [festive fingernails](https://nails.allwomenstalk.com/fabulously-festive-nail-art-tutorials/)
+- [nail designs for valentines](https://nails.allwomenstalk.com/fabulous-valentines-day-nail-art-designs/)
+- [best nail artists](https://nails.allwomenstalk.com/nail-artists-to-follow-in-instagram/)
+- [new nails](https://nails.allwomenstalk.com/awesome-new-years-eve-nail-art-designs-to-help-you-ring-it-in/)
+- [black with pink glitter nails](https://nails.allwomenstalk.com/ideal-gifts-for-a-die-hard-nail-polish-fan/)
 - [nail instagram names](https://nails.allwomenstalk.com/the-best-instagram-accounts-to-follow-for-some-serious-nail-art-inspo/)
+- [manicure for wedding](https://wedding.allwomenstalk.com/winter-wedding-nail-art-designs-for-your-special-day/)
 - [9 Awesome Nail Art Trends ...](https://makeup.allwomenstalk.com/awesome-nail-art-trends/)
 - [7 Fun and Innovative Nail Polishes You'll Want to ...](https://nails.allwomenstalk.com/fun-and-innovative-nail-polishes-youll-want-to-try/)
 

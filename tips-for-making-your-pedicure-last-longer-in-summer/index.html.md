@@ -42,16 +42,16 @@ How do you make your pedicure last longer?
 
 ## Related Posts
 
+- [shelac](https://nails.allwomenstalk.com/pros-and-cons-of-a-cnd-shellac-manicure/)
 - [nails too long](https://nails.allwomenstalk.com/miracle-ways-to-save-your-nails-for-girls-who-did-acrylics-for-way-too-long/)
-- [is there an alternative to acrylic nails](https://nails.allwomenstalk.com/alternatives-to-acrylic-nails/)
-- [different color blue nails](https://nails.allwomenstalk.com/easy-nail-care-tips/)
-- [tips for healthy nails](https://nails.allwomenstalk.com/tips-for-healthy-nails/)
 - [velociraptor acrylic nails](https://nails.allwomenstalk.com/nail-mistakes-to-avoid/)
 - [nails inc color changing polish](https://nails.allwomenstalk.com/top-secrets-from-manicurists-to-get-perfectly-painted-nails-at-home/)
 - [ragged cuticles](https://nails.allwomenstalk.com/super-simple-diy-treatments-for-girls-with-seriously-ragged-cuticles/)
-- [shelac](https://nails.allwomenstalk.com/pros-and-cons-of-a-cnd-shellac-manicure/)
+- [is there an alternative to acrylic nails](https://nails.allwomenstalk.com/alternatives-to-acrylic-nails/)
 - [really pretty nails](https://nails.allwomenstalk.com/the-best-care-tips-for-beautiful-nails/)
 - [mascara nails](https://nails.allwomenstalk.com/nail-masks-for-healthy-nails/)
+- [tips for healthy nails](https://nails.allwomenstalk.com/tips-for-healthy-nails/)
+- [different color blue nails](https://nails.allwomenstalk.com/easy-nail-care-tips/)
 - [Feet Care Tips ...](https://allwomenstalk.com/feet-care-tips/)
 - [Pedicure Tips ...](https://allwomenstalk.com/pedicure-tips/)
 

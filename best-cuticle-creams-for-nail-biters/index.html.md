@@ -56,16 +56,16 @@ It is possible to stop biting your nails and picking your cuticles – I promise
 
 ## Related Posts
 
-- [best nail polish remover for glitter](https://nails.allwomenstalk.com/tips-on-how-to-remove-glitter-nail-polish/)
-- [geometric french nails](https://nails.allwomenstalk.com/ways-to-make-nail-designs-using-tape/)
 - [how does a tea bag fix a broken nail](https://nails.allwomenstalk.com/easy-ways-to-fix-a-broken-nail/)
-- [nail chemical formula](https://nails.allwomenstalk.com/things-you-need-to-know-about-nail-polish-formulas/)
-- [keeping long nails](https://nails.allwomenstalk.com/tips-for-growing-long-nails-and-keeping-them/)
-- [why aren't my gel nails drying](https://nails.allwomenstalk.com/tips-on-how-to-make-nail-polish-stay-on-longer/)
-- [how to wash your hair with acrylic nails](https://nails.allwomenstalk.com/tips-for-caring-for-acrylic-nails/)
-- [acrylic nail maintenance](https://beauty.allwomenstalk.com/ways-to-take-care-of-acrylic-nails/)
+- [best nail polish remover for glitter](https://nails.allwomenstalk.com/tips-on-how-to-remove-glitter-nail-polish/)
 - [nail colors for my skin tone](https://nails.allwomenstalk.com/tips-on-matching-nail-polish-color-with-your-skin-tone/)
+- [how to wash your hair with acrylic nails](https://nails.allwomenstalk.com/tips-for-caring-for-acrylic-nails/)
+- [keeping long nails](https://nails.allwomenstalk.com/tips-for-growing-long-nails-and-keeping-them/)
+- [geometric french nails](https://nails.allwomenstalk.com/ways-to-make-nail-designs-using-tape/)
+- [acrylic nail maintenance](https://beauty.allwomenstalk.com/ways-to-take-care-of-acrylic-nails/)
+- [why aren't my gel nails drying](https://nails.allwomenstalk.com/tips-on-how-to-make-nail-polish-stay-on-longer/)
 - [how to get nail polish remover off skin](https://lifestyle.allwomenstalk.com/ways-to-use-nail-polish-remover/)
+- [nail chemical formula](https://nails.allwomenstalk.com/things-you-need-to-know-about-nail-polish-formulas/)
 - [7 Intensive Foot Creams ...](https://skincare.allwomenstalk.com/7-intensive-foot-creams/)
 - [7 Great Drugstore Body Lotions ...](https://skincare.allwomenstalk.com/great-drugstore-body-lotions/)
 

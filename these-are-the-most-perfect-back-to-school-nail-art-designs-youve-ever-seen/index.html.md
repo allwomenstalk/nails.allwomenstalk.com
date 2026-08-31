@@ -90,15 +90,15 @@ Which design will make back to school just a little better? What do you love or 
 
 ## Related Posts
 
-- [harry potter nail art simple](https://nails.allwomenstalk.com/harry-potter-nail-art-patterns-for-the-biggest-fans/)
-- [nail polish dipped wire flowers](https://diy.allwomenstalk.com/use-nail-polish-to-add-gorgeous-marble-design-to-many-home-diy-projects/)
-- [green plaid christmas nails](https://nails.allwomenstalk.com/awesome-plaid-nail-art-designs-for-your-preppy-days/)
-- [nars steven klein](https://nails.allwomenstalk.com/dark-nail-polish-colors-for-fall/)
-- [neutral colour nails](https://nails.allwomenstalk.com/nifty-neutral-nail-colors-for-fall/)
-- [nails with the letter n on them](https://nails.allwomenstalk.com/cool-ways-to-show-off-your-love-of-social-media-on-your-fingernails/)
 - [how to do watercolor nails](https://nails.allwomenstalk.com/trending-now-watercolor-manicures/)
+- [harry potter nail art simple](https://nails.allwomenstalk.com/harry-potter-nail-art-patterns-for-the-biggest-fans/)
+- [green plaid christmas nails](https://nails.allwomenstalk.com/awesome-plaid-nail-art-designs-for-your-preppy-days/)
 - [pedicure halloween](https://nails.allwomenstalk.com/halloween-nail-art-to-pull-your-costume-together/)
+- [neutral colour nails](https://nails.allwomenstalk.com/nifty-neutral-nail-colors-for-fall/)
+- [nars steven klein](https://nails.allwomenstalk.com/dark-nail-polish-colors-for-fall/)
 - [uñas de fall](https://nails.allwomenstalk.com/get-your-autumn-on-with-this-fall-inspired-nail-art/)
+- [nails with the letter n on them](https://nails.allwomenstalk.com/cool-ways-to-show-off-your-love-of-social-media-on-your-fingernails/)
+- [nail polish dipped wire flowers](https://diy.allwomenstalk.com/use-nail-polish-to-add-gorgeous-marble-design-to-many-home-diy-projects/)
 - [little nail designs](https://nails.allwomenstalk.com/super-easy-nail-art-designs-for-lazy-girls/)
 - [9 Awesome Nail Art Trends ...](https://makeup.allwomenstalk.com/awesome-nail-art-trends/)
 - [7 Amazing Nail Appliqués to Try This Fall ...](https://nails.allwomenstalk.com/amazing-nail-appliques-to-try-this-fall/)

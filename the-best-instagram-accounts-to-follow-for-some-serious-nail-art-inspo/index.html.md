@@ -56,16 +56,16 @@ What's YOUR favorite nails-related Instagram account to follow? Share the names 
 
 ## Related Posts
 
+- [nail videos](https://nails.allwomenstalk.com/up-your-style-game-with-these-nail-porn-videos/)
+- [nail design black lines](https://nails.allwomenstalk.com/these-black-and-white-nail-art-patterns-will-rock-your-world/)
 - [neon turquoise nail polish](https://nails.allwomenstalk.com/fabulous-ways-to-wear-glitter-nail-polish/)
 - [sample of nail art designs](https://nails.allwomenstalk.com/fantastic-mardi-gras-nail-art-ideas/)
-- [hanukkah inspired nails](https://nails.allwomenstalk.com/fantastic-hanukkah-nail-art-designs-to-help-you-celebrate/)
-- [black with pink glitter nails](https://nails.allwomenstalk.com/ideal-gifts-for-a-die-hard-nail-polish-fan/)
-- [nail designs for valentines](https://nails.allwomenstalk.com/fabulous-valentines-day-nail-art-designs/)
-- [nail videos](https://nails.allwomenstalk.com/up-your-style-game-with-these-nail-porn-videos/)
-- [nails white with flowers](https://nails.allwomenstalk.com/wait-til-you-see-these-awesome-flower-nail-art-designs/)
-- [manicure for wedding](https://wedding.allwomenstalk.com/winter-wedding-nail-art-designs-for-your-special-day/)
 - [festive fingernails](https://nails.allwomenstalk.com/fabulously-festive-nail-art-tutorials/)
-- [nail design black lines](https://nails.allwomenstalk.com/these-black-and-white-nail-art-patterns-will-rock-your-world/)
+- [black with pink glitter nails](https://nails.allwomenstalk.com/ideal-gifts-for-a-die-hard-nail-polish-fan/)
+- [hanukkah inspired nails](https://nails.allwomenstalk.com/fantastic-hanukkah-nail-art-designs-to-help-you-celebrate/)
+- [manicure for wedding](https://wedding.allwomenstalk.com/winter-wedding-nail-art-designs-for-your-special-day/)
+- [nails white with flowers](https://nails.allwomenstalk.com/wait-til-you-see-these-awesome-flower-nail-art-designs/)
+- [nail designs for valentines](https://nails.allwomenstalk.com/fabulous-valentines-day-nail-art-designs/)
 - [How to Get the Perfect Instagram Nail Shot ...](https://nails.allwomenstalk.com/how-to-get-the-perfect-instagram-nail-shot/)
 - [Celebrity Nail Art You Should Try to Copy ...](https://nails.allwomenstalk.com/celebrity-nail-art-you-should-try-to-copy/)
 

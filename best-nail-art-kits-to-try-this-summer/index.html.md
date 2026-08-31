@@ -56,15 +56,15 @@ So, ladies, which one intrigues you the most? Are you planning on trying any of 
 
 ## Related Posts
 
-- [purple toenails polish](https://nails.allwomenstalk.com/enchanting-purple-nail-polishes/)
 - [nail color for tropical vacation](https://nails.allwomenstalk.com/soft-nail-polish-shades-for-a-refreshing-new-look/)
-- [fall nails 2013](https://nails.allwomenstalk.com/on-trend-nail-polish-colours-for-fall/)
-- [essie raspberry red](https://nails.allwomenstalk.com/of-my-favorite-must-have-red-nail-polishes/)
-- [nails inc glowing out](https://nails.allwomenstalk.com/fun-and-innovative-nail-polishes-youll-want-to-try/)
-- [color riche le stylo blinged brilliant](https://nails.allwomenstalk.com/awesome-youtube-nail-tutorials-youve-got-to-try/)
-- [nail color for toes](https://nails.allwomenstalk.com/fabulous-pedicure-colors-for-fall-that-youll-be-happy-to-flaunt/)
+- [purple toenails polish](https://nails.allwomenstalk.com/enchanting-purple-nail-polishes/)
 - [trendy fall nail polish colors](https://nails.allwomenstalk.com/trendy-nail-polish-colors-youll-enjoy-sporting-for-fall/)
+- [fall nails 2013](https://nails.allwomenstalk.com/on-trend-nail-polish-colours-for-fall/)
+- [nails inc glowing out](https://nails.allwomenstalk.com/fun-and-innovative-nail-polishes-youll-want-to-try/)
+- [essie raspberry red](https://nails.allwomenstalk.com/of-my-favorite-must-have-red-nail-polishes/)
+- [color riche le stylo blinged brilliant](https://nails.allwomenstalk.com/awesome-youtube-nail-tutorials-youve-got-to-try/)
 - [boyfriend nails](https://nails.allwomenstalk.com/of-katy-perrys-manicures-that-youll-love/)
+- [nail color for toes](https://nails.allwomenstalk.com/fabulous-pedicure-colors-for-fall-that-youll-be-happy-to-flaunt/)
 - [riche stylo smoky eye garnet](https://nails.allwomenstalk.com/gorgeous-nail-polish-shades-for-autumn-that-your-nails-will-love/)
 - [7 Hottest Nail Trends for Fall ...](https://beauty.allwomenstalk.com/hottest-nail-trends-for-fall/)
 - [7 Fabulous Nail Trends to Try This Season ...](https://allwomenstalk.com/7-fabulous-nail-trends-to-try-this-season/)

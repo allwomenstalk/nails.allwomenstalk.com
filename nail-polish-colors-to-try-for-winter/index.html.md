@@ -74,16 +74,16 @@ Popular nail polish colors for winter seem to cover all bases. From metallics to
 
 ## Related Posts
 
-- [valentines day nail colors](https://nails.allwomenstalk.com/flirty-and-fun-nail-polishes-for-valentines-day/)
-- [2013 nail designs](https://nails.allwomenstalk.com/top-nail-design-trends-for/)
-- [chanel peridot nail polish](https://nails.allwomenstalk.com/statement-nail-polishes-for-every-collection/)
 - [santa hat nails](https://nails.allwomenstalk.com/dessert-nail-art-tutorials-too-sweet-to-resist/)
-- [metallic green nail polish](https://nails.allwomenstalk.com/magical-metallic-nail-polishes/)
-- [nail polish that cracks when it dries](https://nails.allwomenstalk.com/best-crackle-nail-polishes/)
-- [nail polish double colour](https://nails.allwomenstalk.com/on-trend-nail-polish-colors-for-spring/)
-- [nifty nail reviews](https://nails.allwomenstalk.com/nifty-nail-polishes-i-cant-wait-to-wear/)
 - [famous nail polish brands](https://nails.allwomenstalk.com/nail-polish-brands-i-love/)
+- [nail polish that cracks when it dries](https://nails.allwomenstalk.com/best-crackle-nail-polishes/)
+- [valentines day nail colors](https://nails.allwomenstalk.com/flirty-and-fun-nail-polishes-for-valentines-day/)
+- [nifty nail reviews](https://nails.allwomenstalk.com/nifty-nail-polishes-i-cant-wait-to-wear/)
+- [chanel peridot nail polish](https://nails.allwomenstalk.com/statement-nail-polishes-for-every-collection/)
+- [2013 nail designs](https://nails.allwomenstalk.com/top-nail-design-trends-for/)
+- [nail polish double colour](https://nails.allwomenstalk.com/on-trend-nail-polish-colors-for-spring/)
 - [celebrity nail polish](https://nails.allwomenstalk.com/gorgeous-celebrity-nail-polishes-to-try/)
+- [metallic green nail polish](https://nails.allwomenstalk.com/magical-metallic-nail-polishes/)
 - [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
 - [8 Acid Bright Nail Polish Colors to Try ...](https://makeup.allwomenstalk.com/acid-bright-nail-polish-colors-to-try/)
 

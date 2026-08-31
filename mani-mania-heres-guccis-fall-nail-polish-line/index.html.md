@@ -164,16 +164,16 @@ Which of these nail polishes just made your shopping list for this fall?
 
 ## Related Posts
 
-- [freddy krueger nails](https://nails.allwomenstalk.com/halloween-nail-art-tutorials-you-will-love/)
-- [popular nail colors this fall](https://nails.allwomenstalk.com/crazy-awesome-nail-polish-colors-for-fall/)
-- [nail instagram names](https://nails.allwomenstalk.com/the-best-instagram-accounts-to-follow-for-some-serious-nail-art-inspo/)
-- [nail polish 2014](https://nails.allwomenstalk.com/top-nail-polishes-of/)
-- [disney nail art designs](https://nails.allwomenstalk.com/disney-inspired-nail-designs-that-are-totally-charming/)
-- [new nails](https://nails.allwomenstalk.com/awesome-new-years-eve-nail-art-designs-to-help-you-ring-it-in/)
-- [Mani Mania: Best Nude Polishes for Fall ...](https://nails.allwomenstalk.com/mani-mania-best-nude-polishes-for-fall/)
-- [best nail artists](https://nails.allwomenstalk.com/nail-artists-to-follow-in-instagram/)
-- [pinterest halloween gifts](https://nails.allwomenstalk.com/spooky-halloween-nail-ideas-from-pinterest-to-try/)
 - [trending holiday nail colors](https://nails.allwomenstalk.com/nail-polish-colors-for-the-holidays/)
+- [pinterest halloween gifts](https://nails.allwomenstalk.com/spooky-halloween-nail-ideas-from-pinterest-to-try/)
+- [best nail artists](https://nails.allwomenstalk.com/nail-artists-to-follow-in-instagram/)
+- [freddy krueger nails](https://nails.allwomenstalk.com/halloween-nail-art-tutorials-you-will-love/)
+- [Mani Mania: Best Nude Polishes for Fall ...](https://nails.allwomenstalk.com/mani-mania-best-nude-polishes-for-fall/)
+- [nail instagram names](https://nails.allwomenstalk.com/the-best-instagram-accounts-to-follow-for-some-serious-nail-art-inspo/)
+- [new nails](https://nails.allwomenstalk.com/awesome-new-years-eve-nail-art-designs-to-help-you-ring-it-in/)
+- [disney nail art designs](https://nails.allwomenstalk.com/disney-inspired-nail-designs-that-are-totally-charming/)
+- [popular nail colors this fall](https://nails.allwomenstalk.com/crazy-awesome-nail-polish-colors-for-fall/)
+- [nail polish 2014](https://nails.allwomenstalk.com/top-nail-polishes-of/)
 - [Gucci Handbags - Top 10 from Winter Collection ...](https://allwomenstalk.com/gucci-handbags-top-10-from-winter-collection/)
 - [Gucci Spring 2009 from Milan Fashion Week ...](https://allwomenstalk.com/gucci-spring-from-milan-fashion-week/)
 

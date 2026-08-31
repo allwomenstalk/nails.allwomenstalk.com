@@ -54,16 +54,16 @@ $8.99 at amazon.com
 
 ## Related Posts
 
-- [mani inspo](https://nails.allwomenstalk.com/of-todays-swoon-worthy-nail-inspo-for-mani-obsessed-people/)
-- [long nails sharp](https://nails.allwomenstalk.com/best-long-nails/)
-- [why does my nail polish have scratches](https://nails.allwomenstalk.com/of-todays-extraordinary-nail-inspo-for-dolls-who-are-taking-care-of-their-nails/)
+- [today's inspo](https://nails.allwomenstalk.com/instagram-nail-accounts-you-should-follow/)
 - [tiffany blue nails](https://nails.allwomenstalk.com/best-blue-nails/)
 - [le stylo endless pearl](https://nails.allwomenstalk.com/of-todays-charming-nail-inspo-for-dolls-who-are-taking-care-of-their-nails/)
-- [christmas nail stripes](https://nails.allwomenstalk.com/best-polished-nails/)
+- [mani inspo](https://nails.allwomenstalk.com/of-todays-swoon-worthy-nail-inspo-for-mani-obsessed-people/)
 - [braltus inhaler](https://nails.allwomenstalk.com/of-todays-heavenly-nail-inspo-for-girls-looking-to-play-up-their-nails/)
-- [today's inspo](https://nails.allwomenstalk.com/instagram-nail-accounts-you-should-follow/)
+- [why does my nail polish have scratches](https://nails.allwomenstalk.com/of-todays-extraordinary-nail-inspo-for-dolls-who-are-taking-care-of-their-nails/)
 - [loreal paris riche le stylo smoky eye golden](https://nails.allwomenstalk.com/of-todays-amazing-nail-inspo-for-women-who-really-know-beauty/)
+- [long nails sharp](https://nails.allwomenstalk.com/best-long-nails/)
 - [let's be friends dip](https://nails.allwomenstalk.com/best-gel-nails/)
+- [christmas nail stripes](https://nails.allwomenstalk.com/best-polished-nails/)
 - [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
 - [7 Hottest Nail Trends for Fall ...](https://beauty.allwomenstalk.com/hottest-nail-trends-for-fall/)
 

@@ -157,16 +157,16 @@ What's your favorite scene in Harry Potter? Which of these nail art patterns do 
 
 ## Related Posts
 
-- [neutral colour nails](https://nails.allwomenstalk.com/nifty-neutral-nail-colors-for-fall/)
-- [nars steven klein](https://nails.allwomenstalk.com/dark-nail-polish-colors-for-fall/)
-- [little nail designs](https://nails.allwomenstalk.com/super-easy-nail-art-designs-for-lazy-girls/)
-- [nails with the letter n on them](https://nails.allwomenstalk.com/cool-ways-to-show-off-your-love-of-social-media-on-your-fingernails/)
 - [pedicure halloween](https://nails.allwomenstalk.com/halloween-nail-art-to-pull-your-costume-together/)
-- [how to do watercolor nails](https://nails.allwomenstalk.com/trending-now-watercolor-manicures/)
-- [uñas de fall](https://nails.allwomenstalk.com/get-your-autumn-on-with-this-fall-inspired-nail-art/)
 - [nail polish dipped wire flowers](https://diy.allwomenstalk.com/use-nail-polish-to-add-gorgeous-marble-design-to-many-home-diy-projects/)
-- [green plaid christmas nails](https://nails.allwomenstalk.com/awesome-plaid-nail-art-designs-for-your-preppy-days/)
+- [how to do watercolor nails](https://nails.allwomenstalk.com/trending-now-watercolor-manicures/)
+- [nails with the letter n on them](https://nails.allwomenstalk.com/cool-ways-to-show-off-your-love-of-social-media-on-your-fingernails/)
+- [little nail designs](https://nails.allwomenstalk.com/super-easy-nail-art-designs-for-lazy-girls/)
+- [nars steven klein](https://nails.allwomenstalk.com/dark-nail-polish-colors-for-fall/)
+- [neutral colour nails](https://nails.allwomenstalk.com/nifty-neutral-nail-colors-for-fall/)
 - [short coffin halloween nail designs](https://nails.allwomenstalk.com/coffin-nail-art-to-keep-it-spooky-on-halloween/)
+- [green plaid christmas nails](https://nails.allwomenstalk.com/awesome-plaid-nail-art-designs-for-your-preppy-days/)
+- [uñas de fall](https://nails.allwomenstalk.com/get-your-autumn-on-with-this-fall-inspired-nail-art/)
 - [9 Examples of Pop-Culture Nail Art ...](https://makeup.allwomenstalk.com/examples-of-pop-culture-nail-art/)
 - [7 Easy Nail Designs and Art for Amateurs ...](https://nails.allwomenstalk.com/easy-nail-designs-and-art-for-amateurs/)
 

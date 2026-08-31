@@ -57,15 +57,15 @@ These are 7 nail shapes that can make your polish even prettier. Which one do yo
 ## Related Posts
 
 - [jamaican nail design ideas](https://nails.allwomenstalk.com/wait-until-you-see-these-outstanding-ways-to-do-geometric-nail-art/)
-- [white nails with blue rhinestones](https://nails.allwomenstalk.com/bling-bling-sparkling-ideas-for-using-rhinestones-on-your-nails/)
-- [rainbow nails](https://nails.allwomenstalk.com/awesome-beach-themed-nail-art-ideas-to-make-your-summer-rock/)
-- [summer easy nail art](https://nails.allwomenstalk.com/summer-gets-even-hotter-with-these-nail-art-ideas/)
-- [loreal color riche le stylo smoky shadow amber rus...](https://nails.allwomenstalk.com/summery-nail-polish-colors-for-the-season/)
+- [sparkly white toe nails](https://nails.allwomenstalk.com/rock-those-sandals-with-one-of-these-jaw-dropping-toe-nail-art-designs/)
 - [dragon ball nail art](https://nails.allwomenstalk.com/the-best-dragon-nail-art-designs-in-the-whole-world/)
 - [arrow nail art](https://nails.allwomenstalk.com/hunger-games-fans-unite-of-the-coolest-nail-art-deisgns-ever/)
-- [lilac short nail designs](https://nails.allwomenstalk.com/got-short-nails-here-are-the-nail-art-designs-youll-love/)
 - [one color nail inspo](https://nails.allwomenstalk.com/awesome-reasons-to-try-neon-nail-art/)
-- [sparkly white toe nails](https://nails.allwomenstalk.com/rock-those-sandals-with-one-of-these-jaw-dropping-toe-nail-art-designs/)
+- [rainbow nails](https://nails.allwomenstalk.com/awesome-beach-themed-nail-art-ideas-to-make-your-summer-rock/)
+- [white nails with blue rhinestones](https://nails.allwomenstalk.com/bling-bling-sparkling-ideas-for-using-rhinestones-on-your-nails/)
+- [loreal color riche le stylo smoky shadow amber rus...](https://nails.allwomenstalk.com/summery-nail-polish-colors-for-the-season/)
+- [summer easy nail art](https://nails.allwomenstalk.com/summer-gets-even-hotter-with-these-nail-art-ideas/)
+- [lilac short nail designs](https://nails.allwomenstalk.com/got-short-nails-here-are-the-nail-art-designs-youll-love/)
 - [8 Neat Ways to Decorate Your Nails ...](https://makeup.allwomenstalk.com/8-neat-ways-to-decorate-your-nails/)
 - [8 DIY Nail Art Techniques to Try ...](https://makeup.allwomenstalk.com/diy-nail-art-techniques-to-try/)
 

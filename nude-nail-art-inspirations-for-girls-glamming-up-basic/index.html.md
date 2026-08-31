@@ -98,16 +98,16 @@ What was your favorite nude nail art? Did you see a style that was your absolute
 
 ## Related Posts
 
-- [matching red lipstick and nail polish](https://fashion.allwomenstalk.com/genius-outfit-boards-for-women-rocking-red-lipstick-and-red-nails/)
 - [coachella nails](https://nails.allwomenstalk.com/coachella-nail-art-inspos-to-rock-this-year/)
-- [wine colour nail art](https://nails.allwomenstalk.com/nail-art-inspos-for-girls-wanting-to-class-up-their-short-nails/)
-- [prom nails natural](https://nails.allwomenstalk.com/gorgeous-prom-nail-designs-to-wow-from-head-to-toe/)
-- [neutral nail polish color](https://nails.allwomenstalk.com/neutral-nail-colors-thatll-help-you-make-a-statement-while-remaining-professional/)
-- [rocking nails](https://nails.allwomenstalk.com/quartz-nails-that-are-totally-rocking-the-internet-right-now/)
-- [weird nail trends](https://nails.allwomenstalk.com/nail-trends-skyrocketing-in-popularity-this-year/)
-- [nail inspos](https://nails.allwomenstalk.com/best-matte-manicure-inspiration/)
 - [french nail stickers](https://nails.allwomenstalk.com/of-the-coolest-nail-stickers-you-can-find-on-amazon-for-an-epic-manicure/)
+- [matching red lipstick and nail polish](https://fashion.allwomenstalk.com/genius-outfit-boards-for-women-rocking-red-lipstick-and-red-nails/)
+- [wine colour nail art](https://nails.allwomenstalk.com/nail-art-inspos-for-girls-wanting-to-class-up-their-short-nails/)
 - [summer nail polishes](https://nails.allwomenstalk.com/summer-nail-polishes-to-have-you-rocking-the-season-like-a-boss/)
+- [prom nails natural](https://nails.allwomenstalk.com/gorgeous-prom-nail-designs-to-wow-from-head-to-toe/)
+- [nail inspos](https://nails.allwomenstalk.com/best-matte-manicure-inspiration/)
+- [neutral nail polish color](https://nails.allwomenstalk.com/neutral-nail-colors-thatll-help-you-make-a-statement-while-remaining-professional/)
+- [weird nail trends](https://nails.allwomenstalk.com/nail-trends-skyrocketing-in-popularity-this-year/)
+- [rocking nails](https://nails.allwomenstalk.com/quartz-nails-that-are-totally-rocking-the-internet-right-now/)
 - [New Year's Eve Nail Art for Girls Who Want to Star...](https://nails.allwomenstalk.com/awesome-new-years-eve-nail-art-designs-to-help-you-ring-it-in/)
 - [The Nail Art Patterns Fashionable Girls Need to Ma...](https://nails.allwomenstalk.com/these-nail-art-patterns-will-make-your-easter-holiday-something-really-special/)
 

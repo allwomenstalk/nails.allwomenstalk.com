@@ -132,15 +132,15 @@ Which idea do you love best? Do you have any tips for getting sponge nail art ju
 ## Related Posts
 
 - [homemade nail polish](https://nails.allwomenstalk.com/nail-polish-hacks-you-really-need-to-know/)
-- [harry potter nail art simple](https://nails.allwomenstalk.com/harry-potter-nail-art-patterns-for-the-biggest-fans/)
-- [summer nail](https://nails.allwomenstalk.com/white-hot-nails-for-summertime/)
-- [nails with the letter n on them](https://nails.allwomenstalk.com/cool-ways-to-show-off-your-love-of-social-media-on-your-fingernails/)
-- [rainbow nail design](https://nails.allwomenstalk.com/rainbow-nail-art-to-make-you-smile/)
-- [3d summer nails](https://nails.allwomenstalk.com/dazzling-3d-nail-art-designs-you-wont-be-able-to-take-your-eyes-off-of/)
-- [uñas de fall](https://nails.allwomenstalk.com/get-your-autumn-on-with-this-fall-inspired-nail-art/)
 - [can you change the color of ombre nails](https://nails.allwomenstalk.com/ombre-nails-that-will-blow-your-mind/)
+- [harry potter nail art simple](https://nails.allwomenstalk.com/harry-potter-nail-art-patterns-for-the-biggest-fans/)
 - [green plaid christmas nails](https://nails.allwomenstalk.com/awesome-plaid-nail-art-designs-for-your-preppy-days/)
 - [nail ve](https://nails.allwomenstalk.com/these-are-the-most-perfect-back-to-school-nail-art-designs-youve-ever-seen/)
+- [nails with the letter n on them](https://nails.allwomenstalk.com/cool-ways-to-show-off-your-love-of-social-media-on-your-fingernails/)
+- [3d summer nails](https://nails.allwomenstalk.com/dazzling-3d-nail-art-designs-you-wont-be-able-to-take-your-eyes-off-of/)
+- [uñas de fall](https://nails.allwomenstalk.com/get-your-autumn-on-with-this-fall-inspired-nail-art/)
+- [rainbow nail design](https://nails.allwomenstalk.com/rainbow-nail-art-to-make-you-smile/)
+- [summer nail](https://nails.allwomenstalk.com/white-hot-nails-for-summertime/)
 - [9 Awesome Nail Art Trends ...](https://makeup.allwomenstalk.com/awesome-nail-art-trends/)
 - [9 Easy Nail Ideas for Spring ...](https://nails.allwomenstalk.com/easy-nail-ideas-for-spring/)
 

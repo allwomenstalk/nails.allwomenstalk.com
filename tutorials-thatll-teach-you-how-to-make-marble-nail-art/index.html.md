@@ -42,15 +42,15 @@ Even though marble nail art can take a little while to create, it'll end up look
 
 ## Related Posts
 
-- [at home gel polish peels off](https://nails.allwomenstalk.com/heres-how-to-use-peel-off-nail-polish-the-right-way/)
-- [nails growth tips](https://nails.allwomenstalk.com/tips-to-growing-long-nails-fast/)
-- [firefighter nail designs](https://nails.allwomenstalk.com/quick-tips-for-nail-care-and-polish/)
-- [how do i clean under my nails](https://nails.allwomenstalk.com/how-to-clean-underneath-your-nails/)
-- [long exotic nails](https://nails.allwomenstalk.com/how-to-create-a-stella-mccartney-inspired-marble-manicure/)
 - [how to make dots on nails without dotting tool](https://nails.allwomenstalk.com/how-to-make-your-own-nail-dotting-tool-with-household-items/)
-- [loreal riche stylo eye blinged brilliant](https://nails.allwomenstalk.com/this-video-will-show-you-how-to-paint-your-nails-perfectly/)
+- [at home gel polish peels off](https://nails.allwomenstalk.com/heres-how-to-use-peel-off-nail-polish-the-right-way/)
+- [long exotic nails](https://nails.allwomenstalk.com/how-to-create-a-stella-mccartney-inspired-marble-manicure/)
+- [firefighter nail designs](https://nails.allwomenstalk.com/quick-tips-for-nail-care-and-polish/)
+- [nails growth tips](https://nails.allwomenstalk.com/tips-to-growing-long-nails-fast/)
 - [small natural acrylic nails](https://nails.allwomenstalk.com/essential-tips-for-every-girl-wanting-amazing-nails/)
+- [how do i clean under my nails](https://nails.allwomenstalk.com/how-to-clean-underneath-your-nails/)
 - [while analyzing sonia's features, you noticed that...](https://nails.allwomenstalk.com/how-to-create-fabulous-striped-nails-using-floss/)
+- [loreal riche stylo eye blinged brilliant](https://nails.allwomenstalk.com/this-video-will-show-you-how-to-paint-your-nails-perfectly/)
 - [your boyfriend no pay for gel](https://nails.allwomenstalk.com/how-to-create-a-gel-manicure-at-home/)
 - [7 Best Blogs on Nail Art ...](https://allwomenstalk.com/best-blogs-on-nail-art/)
 - [7 Top-Notch Tips for Classy Nails ...](https://nails.allwomenstalk.com/top-notch-tips-for-classy-nails/)
