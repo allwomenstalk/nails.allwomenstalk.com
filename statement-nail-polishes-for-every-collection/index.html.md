@@ -58,14 +58,14 @@ Have you found your next must have nail polish? Or maybe you have a fantastic on
 
 - [2013 nail designs](https://nails.allwomenstalk.com/top-nail-design-trends-for/)
 - [metallic green nail polish](https://nails.allwomenstalk.com/magical-metallic-nail-polishes/)
+- [fun nail](https://nails.allwomenstalk.com/fun-nail-polish-combinations-to-try-this-spring/)
 - [cute animal nail art designs](https://nails.allwomenstalk.com/cutest-animal-nail-art-tutorials/)
 - [valentines day nail colors](https://nails.allwomenstalk.com/flirty-and-fun-nail-polishes-for-valentines-day/)
-- [nail polish double colour](https://nails.allwomenstalk.com/on-trend-nail-polish-colors-for-spring/)
-- [fun nail](https://nails.allwomenstalk.com/fun-nail-polish-combinations-to-try-this-spring/)
 - [celebrity nail polish](https://nails.allwomenstalk.com/gorgeous-celebrity-nail-polishes-to-try/)
-- [santa hat nails](https://nails.allwomenstalk.com/dessert-nail-art-tutorials-too-sweet-to-resist/)
-- [nail polish that cracks when it dries](https://nails.allwomenstalk.com/best-crackle-nail-polishes/)
 - [nail art decal](https://nails.allwomenstalk.com/best-nail-art-decals/)
+- [nail polish double colour](https://nails.allwomenstalk.com/on-trend-nail-polish-colors-for-spring/)
+- [nail polish that cracks when it dries](https://nails.allwomenstalk.com/best-crackle-nail-polishes/)
+- [santa hat nails](https://nails.allwomenstalk.com/dessert-nail-art-tutorials-too-sweet-to-resist/)
 - [7 Most Fashionable Nail Polishes of Today ...](https://allwomenstalk.com/7-most-fashionable-nail-polishes-of-today/)
 - [Top 7 Nail Polish Brands ...](https://allwomenstalk.com/top-7-nail-polish-brands/)
 

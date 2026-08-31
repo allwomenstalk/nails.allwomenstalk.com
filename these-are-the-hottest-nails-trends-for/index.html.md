@@ -144,16 +144,16 @@ Oh yes, we went there!
 
 ## Related Posts
 
-- [sharpie on nails](https://nails.allwomenstalk.com/pieces-of-nail-art-you-can-create-with-a-sharpie/)
-- [coral ombre nails](https://nails.allwomenstalk.com/ombre-nail-tutorials-thatll-teach-you-how-to-look-your-best/)
-- [loreal paris la maximalist eyeshadow skirt](https://nails.allwomenstalk.com/furry-nails-are-a-bizarre-new-nail-trend/)
 - [minimalist disney nails](https://nails.allwomenstalk.com/amazing-pieces-of-minimalist-nail-art/)
-- [green bay packers nail designs](https://nails.allwomenstalk.com/show-your-team-spirit-with-this-super-bowl-nail-art/)
-- [nail art birds](https://nails.allwomenstalk.com/nail-infographics-thatll-make-you-look-pretty-as-a-picture/)
 - [nail style names](https://nails.allwomenstalk.com/check-out-this-valentines-day-nail-art-inspiration/)
-- [green themed nails](https://nails.allwomenstalk.com/this-st-paddys-nail-art-will-make-others-green-with-envy/)
+- [loreal paris la maximalist eyeshadow skirt](https://nails.allwomenstalk.com/furry-nails-are-a-bizarre-new-nail-trend/)
+- [coral ombre nails](https://nails.allwomenstalk.com/ombre-nail-tutorials-thatll-teach-you-how-to-look-your-best/)
+- [green bay packers nail designs](https://nails.allwomenstalk.com/show-your-team-spirit-with-this-super-bowl-nail-art/)
 - [basketball toenails](https://nails.allwomenstalk.com/basketball-nails-thatll-get-you-pumped-for-march-madness/)
+- [sharpie on nails](https://nails.allwomenstalk.com/pieces-of-nail-art-you-can-create-with-a-sharpie/)
+- [nail art birds](https://nails.allwomenstalk.com/nail-infographics-thatll-make-you-look-pretty-as-a-picture/)
 - [3 dimensional nail art](https://nails.allwomenstalk.com/3-d-nail-art-all-of-your-friends-will-flip-over/)
+- [green themed nails](https://nails.allwomenstalk.com/this-st-paddys-nail-art-will-make-others-green-with-envy/)
 - [7 Hottest Nail Trends for Fall ...](https://beauty.allwomenstalk.com/hottest-nail-trends-for-fall/)
 - [9 on-Trend Spring Nail Colors ...](https://makeup.allwomenstalk.com/on-trend-spring-nail-colors/)
 

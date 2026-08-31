@@ -62,16 +62,16 @@ What are your personal best nail polish brands and is there a special color you 
 
 ## Related Posts
 
-- [nifty nail reviews](https://nails.allwomenstalk.com/nifty-nail-polishes-i-cant-wait-to-wear/)
-- [chanel peridot nail polish](https://nails.allwomenstalk.com/statement-nail-polishes-for-every-collection/)
 - [santa hat nails](https://nails.allwomenstalk.com/dessert-nail-art-tutorials-too-sweet-to-resist/)
-- [2013 nail designs](https://nails.allwomenstalk.com/top-nail-design-trends-for/)
-- [metallic green nail polish](https://nails.allwomenstalk.com/magical-metallic-nail-polishes/)
-- [valentines day nail colors](https://nails.allwomenstalk.com/flirty-and-fun-nail-polishes-for-valentines-day/)
-- [nail polish double colour](https://nails.allwomenstalk.com/on-trend-nail-polish-colors-for-spring/)
-- [nail art decal](https://nails.allwomenstalk.com/best-nail-art-decals/)
 - [nail polish that cracks when it dries](https://nails.allwomenstalk.com/best-crackle-nail-polishes/)
+- [nail art decal](https://nails.allwomenstalk.com/best-nail-art-decals/)
 - [celebrity nail polish](https://nails.allwomenstalk.com/gorgeous-celebrity-nail-polishes-to-try/)
+- [valentines day nail colors](https://nails.allwomenstalk.com/flirty-and-fun-nail-polishes-for-valentines-day/)
+- [metallic green nail polish](https://nails.allwomenstalk.com/magical-metallic-nail-polishes/)
+- [2013 nail designs](https://nails.allwomenstalk.com/top-nail-design-trends-for/)
+- [chanel peridot nail polish](https://nails.allwomenstalk.com/statement-nail-polishes-for-every-collection/)
+- [nifty nail reviews](https://nails.allwomenstalk.com/nifty-nail-polishes-i-cant-wait-to-wear/)
+- [nail polish double colour](https://nails.allwomenstalk.com/on-trend-nail-polish-colors-for-spring/)
 - [Top 7 Skin Care Brands I Love ...](https://skincare.allwomenstalk.com/top-skin-care-brands-i-love/)
 - [7 Most Fashionable Nail Polishes of Today ...](https://allwomenstalk.com/7-most-fashionable-nail-polishes-of-today/)
 

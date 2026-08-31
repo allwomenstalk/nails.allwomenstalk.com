@@ -187,16 +187,16 @@ If only our holiday could all be this brilliant.
 
 ## Related Posts
 
-- [animal with nails](https://nails.allwomenstalk.com/show-off-your-wild-side-with-these-animal-print-nails/)
-- [war nails](https://nails.allwomenstalk.com/awaken-the-force-with-star-wars-nail-art/)
-- [winter nail art](https://nails.allwomenstalk.com/winter-nail-art-thats-gorgeous-and-glittery/)
 - [paper nail ideas](https://nails.allwomenstalk.com/booksworms-will-love-this-newspaper-nail-art/)
-- [nail trend](https://nails.allwomenstalk.com/love-or-hate-the-nail-trends-of-that-divided-opinion/)
-- [pearl white color nails](https://nails.allwomenstalk.com/pearl-nail-art-thatll-make-you-look-elegant-all-around/)
-- [holly xmas nails](https://nails.allwomenstalk.com/apply-this-christmas-nail-art-before-your-holiday-party/)
-- [pink floyd nail designs](https://nails.allwomenstalk.com/youre-going-to-love-this-grunge-nail-art/)
-- [nail trends 2016](https://nails.allwomenstalk.com/these-are-the-hottest-nails-trends-for/)
 - [funky nail polish](https://nails.allwomenstalk.com/use-these-funky-colors-to-give-your-nails-some-personality/)
+- [winter nail art](https://nails.allwomenstalk.com/winter-nail-art-thats-gorgeous-and-glittery/)
+- [nail trend](https://nails.allwomenstalk.com/love-or-hate-the-nail-trends-of-that-divided-opinion/)
+- [holly xmas nails](https://nails.allwomenstalk.com/apply-this-christmas-nail-art-before-your-holiday-party/)
+- [pearl white color nails](https://nails.allwomenstalk.com/pearl-nail-art-thatll-make-you-look-elegant-all-around/)
+- [war nails](https://nails.allwomenstalk.com/awaken-the-force-with-star-wars-nail-art/)
+- [animal with nails](https://nails.allwomenstalk.com/show-off-your-wild-side-with-these-animal-print-nails/)
+- [nail trends 2016](https://nails.allwomenstalk.com/these-are-the-hottest-nails-trends-for/)
+- [pink floyd nail designs](https://nails.allwomenstalk.com/youre-going-to-love-this-grunge-nail-art/)
 - [7 Gorgeous Nail Polishes for Fall ...](https://allwomenstalk.com/7-gorgeous-nail-polishes-for-fall/)
 - [8 Perfect Nail Polishes for Fall ...](https://beauty.allwomenstalk.com/perfect-nail-polishes-for-fall/)
 

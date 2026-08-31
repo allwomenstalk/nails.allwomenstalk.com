@@ -120,15 +120,15 @@ Avon Tempted and Avon Untamed meet for a twist on the traditional french mani! .
 
 ## Related Posts
 
-- [nails design](https://nails.allwomenstalk.com/best-nails-design/)
-- [sky nails design](https://nails.allwomenstalk.com/best-sky-nails/)
 - [halloween shellac nails](https://nails.allwomenstalk.com/best-shellac-nails/)
-- [intitle:best "gel nail polish"](https://nails.allwomenstalk.com/best-fancy-nails/)
-- [fancy nails](https://nails.allwomenstalk.com/best-pretty-nails/)
 - [light pink tips nails](https://nails.allwomenstalk.com/best-light-pink-nails/)
-- [neon green nails](https://nails.allwomenstalk.com/best-green-nails/)
-- [top.modern nails](https://nails.allwomenstalk.com/best-modern-nails/)
 - [what time does fashion nails open](https://nails.allwomenstalk.com/best-fashion-nails/)
+- [fancy nails](https://nails.allwomenstalk.com/best-pretty-nails/)
+- [nails design](https://nails.allwomenstalk.com/best-nails-design/)
+- [intitle:best "gel nail polish"](https://nails.allwomenstalk.com/best-fancy-nails/)
+- [sky nails design](https://nails.allwomenstalk.com/best-sky-nails/)
+- [top.modern nails](https://nails.allwomenstalk.com/best-modern-nails/)
+- [neon green nails](https://nails.allwomenstalk.com/best-green-nails/)
 - [elegant nail art designs](https://nails.allwomenstalk.com/best-elegant-nails/)
 - [9 on-Trend Spring Nail Colors ...](https://makeup.allwomenstalk.com/on-trend-spring-nail-colors/)
 - [9 Metallic Nail Polishes ...](https://allwomenstalk.com/metallic-nail-polishes/)

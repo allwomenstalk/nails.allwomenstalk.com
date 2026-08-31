@@ -56,14 +56,14 @@ Do you go for the different color mani-pedi trend? Looking at the fun color choi
 
 ## Related Posts
 
-- [diy nails designs](https://nails.allwomenstalk.com/wicked-diy-nail-designs-for-the-back-to-school-season/)
-- [bunty's jewelers](https://nails.allwomenstalk.com/top-nail-trends-for-fall/)
 - [popular nail colors this fall](https://nails.allwomenstalk.com/crazy-awesome-nail-polish-colors-for-fall/)
 - [nail polish 2014](https://nails.allwomenstalk.com/top-nail-polishes-of/)
-- [freddy krueger nails](https://nails.allwomenstalk.com/halloween-nail-art-tutorials-you-will-love/)
 - [gucci red nail polish](https://nails.allwomenstalk.com/mani-mania-heres-guccis-fall-nail-polish-line/)
-- [pure ice nail polish](https://nails.allwomenstalk.com/fall-for-new-pure-ice-fall-nail-colors/)
+- [freddy krueger nails](https://nails.allwomenstalk.com/halloween-nail-art-tutorials-you-will-love/)
 - [disney nail art designs](https://nails.allwomenstalk.com/disney-inspired-nail-designs-that-are-totally-charming/)
+- [pure ice nail polish](https://nails.allwomenstalk.com/fall-for-new-pure-ice-fall-nail-colors/)
+- [bunty's jewelers](https://nails.allwomenstalk.com/top-nail-trends-for-fall/)
+- [diy nails designs](https://nails.allwomenstalk.com/wicked-diy-nail-designs-for-the-back-to-school-season/)
 - [pinterest halloween gifts](https://nails.allwomenstalk.com/spooky-halloween-nail-ideas-from-pinterest-to-try/)
 - [Mani Mania: Best Nude Polishes for Fall ...](https://nails.allwomenstalk.com/mani-mania-best-nude-polishes-for-fall/)
 - [Manicure ...](https://allwomenstalk.com/manicure/)

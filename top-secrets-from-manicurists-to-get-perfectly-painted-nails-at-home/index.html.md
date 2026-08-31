@@ -42,16 +42,16 @@ I've gotten into the bad habit where I don't like the look of my natural nails! 
 
 ## Related Posts
 
-- [good looking nails](https://nails.allwomenstalk.com/best-tips-for-classy-nails/)
 - [mascara nails](https://nails.allwomenstalk.com/nail-masks-for-healthy-nails/)
-- [tips for healthy nails](https://nails.allwomenstalk.com/tips-for-healthy-nails/)
 - [really pretty nails](https://nails.allwomenstalk.com/the-best-care-tips-for-beautiful-nails/)
+- [different color blue nails](https://nails.allwomenstalk.com/easy-nail-care-tips/)
+- [latina toes](https://beauty.allwomenstalk.com/nail-and-skin-tips-for-fabulous-feet/)
+- [tips for healthy nails](https://nails.allwomenstalk.com/tips-for-healthy-nails/)
+- [good looking nails](https://nails.allwomenstalk.com/best-tips-for-classy-nails/)
 - [velociraptor acrylic nails](https://nails.allwomenstalk.com/nail-mistakes-to-avoid/)
 - [is there an alternative to acrylic nails](https://nails.allwomenstalk.com/alternatives-to-acrylic-nails/)
-- [shelac](https://nails.allwomenstalk.com/pros-and-cons-of-a-cnd-shellac-manicure/)
 - [strong healthy nails](https://nails.allwomenstalk.com/how-to-make-your-nails-strong-and-healthy/)
-- [latina toes](https://beauty.allwomenstalk.com/nail-and-skin-tips-for-fabulous-feet/)
-- [different color blue nails](https://nails.allwomenstalk.com/easy-nail-care-tips/)
+- [shelac](https://nails.allwomenstalk.com/pros-and-cons-of-a-cnd-shellac-manicure/)
 - [Manicure ...](https://allwomenstalk.com/manicure/)
 - [Pedicure Tips ...](https://allwomenstalk.com/pedicure-tips/)
 

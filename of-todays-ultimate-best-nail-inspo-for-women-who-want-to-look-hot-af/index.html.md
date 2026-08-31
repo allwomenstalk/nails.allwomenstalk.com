@@ -52,16 +52,16 @@ Aren't these gorgeous? Tell us which ones you liked best! And if your fav nail a
 
 ## Related Posts
 
-- [coconut girl nail inspo](https://nails.allwomenstalk.com/of-todays-heavenly-nail-inspo-for-girls-obsessed-with-polish-art/)
-- [christmas confetti nail polish](https://nails.allwomenstalk.com/best-acrylic-christmas-nails/)
-- [visual kei nails](https://nails.allwomenstalk.com/best-sharp-nails/)
-- [women's natural nails](https://nails.allwomenstalk.com/best-natural-christmas-nails/)
-- [nails inspo silver](https://nails.allwomenstalk.com/of-todays-awesome-nail-inspo-for-girls-who-are-always-on-trend/)
-- [inspo](https://nails.allwomenstalk.com/of-todays-revolutionary-nail-inspo-for-women-who-can-not-live-without-a-mani/)
-- [nail inspi](https://nails.allwomenstalk.com/of-todays-drool-worthy-nail-inspo-for-women-who-love-new-nail-styles/)
-- [perfect posture essie](https://nails.allwomenstalk.com/best-nails-etc/)
-- [festival nails 2023](https://nails.allwomenstalk.com/best-christmas-easy-nails-ideas/)
 - [site:allwomenstalk.com](https://nails.allwomenstalk.com/best-mod-nails/)
+- [perfect posture essie](https://nails.allwomenstalk.com/best-nails-etc/)
+- [nails inspo silver](https://nails.allwomenstalk.com/of-todays-awesome-nail-inspo-for-girls-who-are-always-on-trend/)
+- [christmas confetti nail polish](https://nails.allwomenstalk.com/best-acrylic-christmas-nails/)
+- [festival nails 2023](https://nails.allwomenstalk.com/best-christmas-easy-nails-ideas/)
+- [visual kei nails](https://nails.allwomenstalk.com/best-sharp-nails/)
+- [inspo](https://nails.allwomenstalk.com/of-todays-revolutionary-nail-inspo-for-women-who-can-not-live-without-a-mani/)
+- [coconut girl nail inspo](https://nails.allwomenstalk.com/of-todays-heavenly-nail-inspo-for-girls-obsessed-with-polish-art/)
+- [nail inspi](https://nails.allwomenstalk.com/of-todays-drool-worthy-nail-inspo-for-women-who-love-new-nail-styles/)
+- [women's natural nails](https://nails.allwomenstalk.com/best-natural-christmas-nails/)
 - [17 of Today's Life Changing Nail Inspo for Women W...](https://nails.allwomenstalk.com/of-todays-life-changing-nail-inspo-for-women-who-really-know-beauty/)
 - [19 of Today's Awesome Nail Inspo for Women Who Wan...](https://nails.allwomenstalk.com/of-todays-awesome-nail-inspo-for-women-who-want-to-invest-in-their-look/)
 

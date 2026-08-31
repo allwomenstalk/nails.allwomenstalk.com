@@ -164,16 +164,16 @@ Which of these holographic colors are you dying to wear first?
 
 ## Related Posts
 
-- [red thanksgiving nails](https://nails.allwomenstalk.com/thanksgiving-nail-art-your-family-will-find-adorable/)
-- [chanel solar nail polish](https://nails.allwomenstalk.com/glitter-polishes-that-will-perfectly-match-any-holiday-outfit/)
 - [holly xmas nails](https://nails.allwomenstalk.com/apply-this-christmas-nail-art-before-your-holiday-party/)
-- [war nails](https://nails.allwomenstalk.com/awaken-the-force-with-star-wars-nail-art/)
-- [animal with nails](https://nails.allwomenstalk.com/show-off-your-wild-side-with-these-animal-print-nails/)
+- [funky nail polish](https://nails.allwomenstalk.com/use-these-funky-colors-to-give-your-nails-some-personality/)
+- [red thanksgiving nails](https://nails.allwomenstalk.com/thanksgiving-nail-art-your-family-will-find-adorable/)
+- [pearl white color nails](https://nails.allwomenstalk.com/pearl-nail-art-thatll-make-you-look-elegant-all-around/)
+- [chanel solar nail polish](https://nails.allwomenstalk.com/glitter-polishes-that-will-perfectly-match-any-holiday-outfit/)
+- [winter nail art](https://nails.allwomenstalk.com/winter-nail-art-thats-gorgeous-and-glittery/)
 - [feathers nails](https://nails.allwomenstalk.com/the-fiercest-feather-nail-art-youll-ever-see/)
 - [candy cane nail designs](https://nails.allwomenstalk.com/dont-go-through-winter-without-trying-snow-nail-art/)
-- [pearl white color nails](https://nails.allwomenstalk.com/pearl-nail-art-thatll-make-you-look-elegant-all-around/)
-- [winter nail art](https://nails.allwomenstalk.com/winter-nail-art-thats-gorgeous-and-glittery/)
-- [funky nail polish](https://nails.allwomenstalk.com/use-these-funky-colors-to-give-your-nails-some-personality/)
+- [war nails](https://nails.allwomenstalk.com/awaken-the-force-with-star-wars-nail-art/)
+- [animal with nails](https://nails.allwomenstalk.com/show-off-your-wild-side-with-these-animal-print-nails/)
 - [The Most Creative Uses for Nail Polish You'll Ever...](https://nails.allwomenstalk.com/creative-uses-for-nail-polish/)
 - [Magnificent Mani-Pedi Color Combos to Make You Smi...](https://nails.allwomenstalk.com/magnificent-mani-pedi-color-pairings-to-make-you-smile/)
 

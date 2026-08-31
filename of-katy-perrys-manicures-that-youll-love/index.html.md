@@ -56,16 +56,16 @@ If you love Katy Perry’s wacky manicures as much as I do, be sure to follow he
 
 ## Related Posts
 
-- [fall nails 2013](https://nails.allwomenstalk.com/on-trend-nail-polish-colours-for-fall/)
-- [trendy fall nail polish colors](https://nails.allwomenstalk.com/trendy-nail-polish-colors-youll-enjoy-sporting-for-fall/)
-- [best chip resistant nail polish](https://nails.allwomenstalk.com/great-budget-friendly-european-nail-polish-brands-to-get-acquainted-with/)
-- [cheap nail polishes](https://nails.allwomenstalk.com/cute-and-affordable-nail-polish-options/)
-- [fall nail polishes](https://nails.allwomenstalk.com/gorgeous-fall-nail-polishes-to-try-this-year/)
-- [paris le stylo endless pearl](https://nails.allwomenstalk.com/most-creative-celebrity-nail-polish-designs/)
-- [magnetic nail polish](https://nails.allwomenstalk.com/unique-nail-colors-sure-to-get-attention/)
 - [white nails with snowman](https://nails.allwomenstalk.com/easy-to-design-holiday-themed-nails/)
-- [essie raspberry red](https://nails.allwomenstalk.com/of-my-favorite-must-have-red-nail-polishes/)
+- [paris le stylo endless pearl](https://nails.allwomenstalk.com/most-creative-celebrity-nail-polish-designs/)
+- [trendy fall nail polish colors](https://nails.allwomenstalk.com/trendy-nail-polish-colors-youll-enjoy-sporting-for-fall/)
+- [cheap nail polishes](https://nails.allwomenstalk.com/cute-and-affordable-nail-polish-options/)
+- [magnetic nail polish](https://nails.allwomenstalk.com/unique-nail-colors-sure-to-get-attention/)
+- [fall nail polishes](https://nails.allwomenstalk.com/gorgeous-fall-nail-polishes-to-try-this-year/)
 - [eccentric nails](https://nails.allwomenstalk.com/amazing-nail-artists-to-follow-on-instagram/)
+- [fall nails 2013](https://nails.allwomenstalk.com/on-trend-nail-polish-colours-for-fall/)
+- [essie raspberry red](https://nails.allwomenstalk.com/of-my-favorite-must-have-red-nail-polishes/)
+- [best chip resistant nail polish](https://nails.allwomenstalk.com/great-budget-friendly-european-nail-polish-brands-to-get-acquainted-with/)
 - [7 New Make up Products You'll Love ...](https://allwomenstalk.com/7-new-make-up-products-youll-love/)
 - [7 Neutral Nail Colours ...](https://allwomenstalk.com/neutral-nail-colours/)
 

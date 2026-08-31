@@ -225,15 +225,15 @@ What's your plan for your nails on Mardi Gras? Aren't you excited to show them o
 
 ## Related Posts
 
-- [ocean themed nail art](https://nails.allwomenstalk.com/really-cool-sea-creature-nail-art-patterns/)
-- [steampunk claws](https://nails.allwomenstalk.com/steampunk-nails-that-will-blow-your-mind/)
-- [jelly roll nail designs](https://nails.allwomenstalk.com/food-nail-art-designs-that-will-make-you-really-hungry/)
-- [nails white with flowers](https://nails.allwomenstalk.com/wait-til-you-see-these-awesome-flower-nail-art-designs/)
-- [gelish nail polish ideas](https://nails.allwomenstalk.com/flirty-spring-nail-art-ideas-for-nail-polish-addicts/)
-- [nail design black lines](https://nails.allwomenstalk.com/these-black-and-white-nail-art-patterns-will-rock-your-world/)
-- [neon cheetah print nails](https://nails.allwomenstalk.com/wait-until-you-see-these-adorable-ideas-for-animal-nail-art/)
 - [marvel character with long nails](https://nails.allwomenstalk.com/these-are-the-best-looking-superhero-nail-art-designs-in-the-world/)
+- [jelly roll nail designs](https://nails.allwomenstalk.com/food-nail-art-designs-that-will-make-you-really-hungry/)
+- [neon cheetah print nails](https://nails.allwomenstalk.com/wait-until-you-see-these-adorable-ideas-for-animal-nail-art/)
+- [ocean themed nail art](https://nails.allwomenstalk.com/really-cool-sea-creature-nail-art-patterns/)
+- [nail design black lines](https://nails.allwomenstalk.com/these-black-and-white-nail-art-patterns-will-rock-your-world/)
+- [steampunk claws](https://nails.allwomenstalk.com/steampunk-nails-that-will-blow-your-mind/)
 - [football nail design](https://nails.allwomenstalk.com/sports-nail-art-ideas-that-will-make-you-ready-for-game-time/)
+- [gelish nail polish ideas](https://nails.allwomenstalk.com/flirty-spring-nail-art-ideas-for-nail-polish-addicts/)
+- [nails white with flowers](https://nails.allwomenstalk.com/wait-til-you-see-these-awesome-flower-nail-art-designs/)
 - [art designs for nails](https://nails.allwomenstalk.com/this-is-what-striped-nail-art-looks-like-fabulous-ideas/)
 - [7 Easy to Design Holiday Themed Nails ...](https://nails.allwomenstalk.com/easy-to-design-holiday-themed-nails/)
 - [24 Fancy Nail Art Designs That You'll Love Looking...](https://beauty.allwomenstalk.com/fancy-nail-art-designs-that-youll-love-looking-at-all-day-long/)

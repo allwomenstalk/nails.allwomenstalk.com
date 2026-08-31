@@ -66,16 +66,16 @@ What nail polish hues do you tend to be drawn to for spring?
 
 ## Related Posts
 
-- [hottest nail trends](https://nails.allwomenstalk.com/the-hottest-nail-trends-for-summer/)
-- [nail art for ladies](https://nails.allwomenstalk.com/nude-nail-designs-for-girls-who-like-to-keep-it-simple/)
-- [acrylic nails vs dip](https://nails.allwomenstalk.com/gel-acrylic-or-dip-which-gives-the-best-nails/)
-- [dolls nails](https://nails.allwomenstalk.com/of-todays-mesmerizing-nail-inspo-for-confident-dolls/)
 - [negative space nail ideas](https://nails.allwomenstalk.com/negative-space-is-the-new-ig-hot-nail-trend/)
 - [healthiest nail polish brands](https://nails.allwomenstalk.com/healthy-nail-polish-brands/)
-- [easter nails different colors](https://nails.allwomenstalk.com/these-nail-art-patterns-will-make-your-easter-holiday-something-really-special/)
 - [nauls inspo](https://nails.allwomenstalk.com/nail-inspiration-from-instagram/)
-- [that girl nail inspo](https://nails.allwomenstalk.com/hottest-nail-inspiration-on-instagram/)
+- [easter nails different colors](https://nails.allwomenstalk.com/these-nail-art-patterns-will-make-your-easter-holiday-something-really-special/)
+- [nail art for ladies](https://nails.allwomenstalk.com/nude-nail-designs-for-girls-who-like-to-keep-it-simple/)
 - [fall season nail colors](https://nails.allwomenstalk.com/of-the-most-beautiful-fall-season-nail-polish-colors/)
+- [dolls nails](https://nails.allwomenstalk.com/of-todays-mesmerizing-nail-inspo-for-confident-dolls/)
+- [hottest nail trends](https://nails.allwomenstalk.com/the-hottest-nail-trends-for-summer/)
+- [that girl nail inspo](https://nails.allwomenstalk.com/hottest-nail-inspiration-on-instagram/)
+- [acrylic nails vs dip](https://nails.allwomenstalk.com/gel-acrylic-or-dip-which-gives-the-best-nails/)
 - [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
 - [9 on-Trend Spring Nail Colors ...](https://makeup.allwomenstalk.com/on-trend-spring-nail-colors/)
 

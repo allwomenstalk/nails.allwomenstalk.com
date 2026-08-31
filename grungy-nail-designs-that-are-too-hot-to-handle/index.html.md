@@ -42,16 +42,16 @@ If it's sassy or quirky, you can certainly count me in; I love rocking nail art 
 
 ## Related Posts
 
-- [turquoise and blue nails](https://nails.allwomenstalk.com/turquoise-nail-polishes-to-shake-up-your-look/)
-- [trendy nail designs for short nails](https://nails.allwomenstalk.com/trendy-nail-designs-for-short-nails/)
-- [color riche smoky neon skirt](https://nails.allwomenstalk.com/new-essie-colors-you-must-try/)
-- [adore gel polish](https://nails.allwomenstalk.com/dazzling-manicures-youll-absolutely-adore/)
-- [opi pops](https://makeup.allwomenstalk.com/opi-shades-to-make-your-nails-pop/)
-- [i love me nails](https://nails.allwomenstalk.com/quirky-nail-designs-you-will-love/)
 - [china glaze polish colors](https://nails.allwomenstalk.com/awesome-china-glazes-nail-polishes-you-should-get-if-you-can-find-them/)
-- [cheapest nail polish brands](https://nails.allwomenstalk.com/bargain-nail-polish-brands-to-try-out/)
 - [stylish manicure](https://nails.allwomenstalk.com/stylish-nail-tutorials-to-celebrate-your-anniversary/)
+- [turquoise and blue nails](https://nails.allwomenstalk.com/turquoise-nail-polishes-to-shake-up-your-look/)
+- [opi pops](https://makeup.allwomenstalk.com/opi-shades-to-make-your-nails-pop/)
 - [pink nail polish color names](https://nails.allwomenstalk.com/gorgeous-nail-polish-colors-with-ridiculous-names/)
+- [color riche smoky neon skirt](https://nails.allwomenstalk.com/new-essie-colors-you-must-try/)
+- [cheapest nail polish brands](https://nails.allwomenstalk.com/bargain-nail-polish-brands-to-try-out/)
+- [adore gel polish](https://nails.allwomenstalk.com/dazzling-manicures-youll-absolutely-adore/)
+- [i love me nails](https://nails.allwomenstalk.com/quirky-nail-designs-you-will-love/)
+- [trendy nail designs for short nails](https://nails.allwomenstalk.com/trendy-nail-designs-for-short-nails/)
 - [7 Hottest Nail Trends for Fall ...](https://beauty.allwomenstalk.com/hottest-nail-trends-for-fall/)
 - [7 Most Fashionable Nail Polishes of Today ...](https://allwomenstalk.com/7-most-fashionable-nail-polishes-of-today/)
 

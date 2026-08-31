@@ -52,15 +52,15 @@ Did you discover a new trick to try during your next at-home manicure? I hope th
 
 ## Related Posts
 
-- [best women's shoes for ingrown toenails](https://health.allwomenstalk.com/common-causes-of-ingrown-toenails/)
-- [why does my nail polish bubble after it dries](https://nails.allwomenstalk.com/things-you-should-know-about-cheap-vs-expensive-nail-polish/)
-- [how to keep healthy toenails](https://nails.allwomenstalk.com/easy-and-effective-ways-to-get-healthy-toenails/)
-- [nail polish chipped](https://nails.allwomenstalk.com/incredibly-simple-ways-to-hide-a-chipped-manicure/)
-- [steps in manicure](https://nails.allwomenstalk.com/steps-for-a-super-fast-manicure/)
-- [fungal infection from nail salon](https://nails.allwomenstalk.com/ways-to-prevent-fungal-nail-infections/)
-- [nail hacks with eyeshadow](https://nails.allwomenstalk.com/awesome-nails-hacks-that-make-painting-your-nails-a-breeze/)
 - [how to tip at nail salon](https://nails.allwomenstalk.com/points-of-etiquette-for-the-nail-salon/)
+- [fungal infection from nail salon](https://nails.allwomenstalk.com/ways-to-prevent-fungal-nail-infections/)
+- [steps in manicure](https://nails.allwomenstalk.com/steps-for-a-super-fast-manicure/)
+- [how to keep healthy toenails](https://nails.allwomenstalk.com/easy-and-effective-ways-to-get-healthy-toenails/)
 - [nail polish tricks and tips](https://nails.allwomenstalk.com/nifty-nail-polish-tricks-and-tips-for-perfect-nails/)
+- [nail hacks with eyeshadow](https://nails.allwomenstalk.com/awesome-nails-hacks-that-make-painting-your-nails-a-breeze/)
+- [best women's shoes for ingrown toenails](https://health.allwomenstalk.com/common-causes-of-ingrown-toenails/)
+- [nail polish chipped](https://nails.allwomenstalk.com/incredibly-simple-ways-to-hide-a-chipped-manicure/)
+- [why does my nail polish bubble after it dries](https://nails.allwomenstalk.com/things-you-should-know-about-cheap-vs-expensive-nail-polish/)
 - [how to keep cuticles healthy](https://nails.allwomenstalk.com/essential-tips-for-caring-for-your-cuticles/)
 - [8 Tips for Choosing the Right Nail Polish ...](https://makeup.allwomenstalk.com/8-tips-for-choosing-the-right-nail-polish/)
 - [8 Tips for Strong Fabulous Nails ...](https://beauty.allwomenstalk.com/tips-for-strong-fabulous-nails/)

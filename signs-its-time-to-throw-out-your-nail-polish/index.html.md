@@ -47,16 +47,16 @@ What color nail polish are you currently wearing?
 
 ## Related Posts
 
-- [dip nail shape](https://nails.allwomenstalk.com/what-does-your-nail-shape-say-about-you/)
-- [dark nail cuticles](https://skincare.allwomenstalk.com/these-things-are-damaging-your-cuticles/)
-- [what does nails tell about your health](https://nails.allwomenstalk.com/things-your-fingernails-can-tell-you-about-your-health/)
 - [manicure tools](https://nails.allwomenstalk.com/dont-give-yourself-a-manicure-without-these-tools/)
 - [nails growth tips](https://nails.allwomenstalk.com/tips-to-growing-long-nails-fast/)
-- [how do i clean under my nails](https://nails.allwomenstalk.com/how-to-clean-underneath-your-nails/)
-- [at home gel polish peels off](https://nails.allwomenstalk.com/heres-how-to-use-peel-off-nail-polish-the-right-way/)
-- [marbling nail polish](https://nails.allwomenstalk.com/tutorials-thatll-teach-you-how-to-make-marble-nail-art/)
-- [how to make dots on nails without dotting tool](https://nails.allwomenstalk.com/how-to-make-your-own-nail-dotting-tool-with-household-items/)
 - [long exotic nails](https://nails.allwomenstalk.com/how-to-create-a-stella-mccartney-inspired-marble-manicure/)
+- [at home gel polish peels off](https://nails.allwomenstalk.com/heres-how-to-use-peel-off-nail-polish-the-right-way/)
+- [dark nail cuticles](https://skincare.allwomenstalk.com/these-things-are-damaging-your-cuticles/)
+- [marbling nail polish](https://nails.allwomenstalk.com/tutorials-thatll-teach-you-how-to-make-marble-nail-art/)
+- [how do i clean under my nails](https://nails.allwomenstalk.com/how-to-clean-underneath-your-nails/)
+- [how to make dots on nails without dotting tool](https://nails.allwomenstalk.com/how-to-make-your-own-nail-dotting-tool-with-household-items/)
+- [dip nail shape](https://nails.allwomenstalk.com/what-does-your-nail-shape-say-about-you/)
+- [what does nails tell about your health](https://nails.allwomenstalk.com/things-your-fingernails-can-tell-you-about-your-health/)
 - [In a Nail Polishing Rut?](https://allwomenstalk.com/in-a-nail-polishing-rut/)
 - [Why It's Time to Consider Dollar Store Make-up ...](https://makeup.allwomenstalk.com/reasons-to-try-dollar-store-make-up/)
 

@@ -56,15 +56,15 @@ Did you know about these uses for nail polish? I mainly knew about the older one
 
 ## Related Posts
 
-- [Fall's Must-Have Nail Polish & Watch Combos ...](https://beauty.allwomenstalk.com/falls-must-have-nail-polish-watch-combos/)
-- [15 Nail Colors to Add to Your Wardrobe This Spring...](https://nails.allwomenstalk.com/nail-colors-to-add-to-your-wardrobe-this-spring/)
-- [nail art tool kit](https://nails.allwomenstalk.com/nail-tools-for-the-best-manicures-and-nail-art/)
-- [le stylo endless pearl](https://nails.allwomenstalk.com/of-todays-charming-nail-inspo-for-dolls-who-are-taking-care-of-their-nails/)
-- [color riche le smoky bottomless java](https://nails.allwomenstalk.com/which-nail-design-is-perfect-for-you/)
-- [short nail art inspo](https://nails.allwomenstalk.com/you-need-to-try-this-nail-art-for-short-nails/)
-- [today's inspo](https://nails.allwomenstalk.com/instagram-nail-accounts-you-should-follow/)
-- [sally hansen miracle gel fall colors](https://nails.allwomenstalk.com/nail-colors-for-fall/)
 - [15 Pink Polishes That Are Perfect for a Valentine'...](https://nails.allwomenstalk.com/pink-polishes-that-are-perfect-for-a-valentines-day-date/)
+- [Fall's Must-Have Nail Polish & Watch Combos ...](https://beauty.allwomenstalk.com/falls-must-have-nail-polish-watch-combos/)
+- [short nail art inspo](https://nails.allwomenstalk.com/you-need-to-try-this-nail-art-for-short-nails/)
+- [color riche le smoky bottomless java](https://nails.allwomenstalk.com/which-nail-design-is-perfect-for-you/)
+- [nail art tool kit](https://nails.allwomenstalk.com/nail-tools-for-the-best-manicures-and-nail-art/)
+- [today's inspo](https://nails.allwomenstalk.com/instagram-nail-accounts-you-should-follow/)
+- [15 Nail Colors to Add to Your Wardrobe This Spring...](https://nails.allwomenstalk.com/nail-colors-to-add-to-your-wardrobe-this-spring/)
+- [le stylo endless pearl](https://nails.allwomenstalk.com/of-todays-charming-nail-inspo-for-dolls-who-are-taking-care-of-their-nails/)
+- [sally hansen miracle gel fall colors](https://nails.allwomenstalk.com/nail-colors-for-fall/)
 - [These Nails Will Push You to Get a Next-Level Mani...](https://nails.allwomenstalk.com/these-nails-will-push-you-to-get-a-next-level-manicure/)
 - [7 Vegan Nail Polish Brands That Will Make Your Nai...](https://beauty.allwomenstalk.com/vegan-nail-polish-brands-that-will-make-your-nails-look-great/)
 - [39 Gorgeous Nail Hacks to Simplify Your Polishing ...](https://nails.allwomenstalk.com/awesome-nails-hacks-that-make-painting-your-nails-a-breeze/)

@@ -134,16 +134,16 @@ Which one is your favorite?
 
 ## Related Posts
 
-- [nab beauty](https://nails.allwomenstalk.com/nails-colors-you-should-nab-for-spring/)
-- [nordstrom chanel nail polish](https://nails.allwomenstalk.com/look-pretty-in-pale-polish-with-this-easter-nail-art/)
-- [elegant fingernail designs](https://nails.allwomenstalk.com/an-elegant-nail-design-for-the-fanciest-occasions/)
-- [long lasting drugstore nail polish](https://nails.allwomenstalk.com/which-long-lasting-nail-polish-brands-actually-work/)
+- [green themed nails](https://nails.allwomenstalk.com/this-st-paddys-nail-art-will-make-others-green-with-envy/)
 - [nails emoji text](https://nails.allwomenstalk.com/pieces-of-emoji-nail-art-for-phone-addicts/)
 - [fall matte nails](https://nails.allwomenstalk.com/matte-nail-art-inspiration-thatll-make-you-look-elegant/)
-- [nail art birds](https://nails.allwomenstalk.com/nail-infographics-thatll-make-you-look-pretty-as-a-picture/)
-- [spring bling nail designs](https://nails.allwomenstalk.com/pieces-of-springtime-nail-art-inspiration/)
-- [green themed nails](https://nails.allwomenstalk.com/this-st-paddys-nail-art-will-make-others-green-with-envy/)
+- [nab beauty](https://nails.allwomenstalk.com/nails-colors-you-should-nab-for-spring/)
 - [minimalist disney nails](https://nails.allwomenstalk.com/amazing-pieces-of-minimalist-nail-art/)
+- [spring bling nail designs](https://nails.allwomenstalk.com/pieces-of-springtime-nail-art-inspiration/)
+- [nail art birds](https://nails.allwomenstalk.com/nail-infographics-thatll-make-you-look-pretty-as-a-picture/)
+- [long lasting drugstore nail polish](https://nails.allwomenstalk.com/which-long-lasting-nail-polish-brands-actually-work/)
+- [elegant fingernail designs](https://nails.allwomenstalk.com/an-elegant-nail-design-for-the-fanciest-occasions/)
+- [nordstrom chanel nail polish](https://nails.allwomenstalk.com/look-pretty-in-pale-polish-with-this-easter-nail-art/)
 - [24 Fancy Nail Art Designs That You'll Love Looking...](https://beauty.allwomenstalk.com/fancy-nail-art-designs-that-youll-love-looking-at-all-day-long/)
 - [15 Halloween Nail Art Tutorials You Will Love ...](https://nails.allwomenstalk.com/halloween-nail-art-tutorials-you-will-love/)
 

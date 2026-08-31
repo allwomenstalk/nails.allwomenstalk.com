@@ -52,16 +52,16 @@ Aren't these gorgeous? Tell us which ones you liked best! And if your fav nail a
 
 ## Related Posts
 
-- [hair and makeup inspo](https://hair.allwomenstalk.com/of-todays-magical-hair-inspo-for-girls-who-want-to-look-chic-af/)
-- [swoon worthy](https://hair.allwomenstalk.com/of-todays-swoon-worthy-hair-inspo-for-girls-who-need-inspiration-today/)
-- [1rdvz_fb6hq -site:youtube.com](https://inspiration.allwomenstalk.com/of-todays-encouraging-daily-inspo-to-inspire-self-love/)
-- [today's ootd](https://fashion.allwomenstalk.com/of-todays-beyond-gorgeous-ootd-inspo-for-girls-looking-to-crush-the-fashion-world/)
-- [todays nails](https://nails.allwomenstalk.com/of-todays-revolutionary-nail-inspo-for-girls-who-live-for-instagram/)
-- [inspo wallpaper](https://diy.allwomenstalk.com/of-todays-brilliant-design-inspo-for-dolls-that-are-obsessed-with-interior-design/)
-- [subtle flowers](https://gardening.allwomenstalk.com/of-todays-mesmerizing-flowers-inspo-for-gals-wanting-subtle-accents/)
-- [ootd inspo meaning](https://fashion.allwomenstalk.com/of-todays-epic-ootd-inspo-for-girls-who-love-the-best/)
-- [captivating flowers](https://gardening.allwomenstalk.com/of-todays-captivating-flowers-inspo-to-brighten-every-girls-day-2/)
 - [todays ootd](https://fashion.allwomenstalk.com/of-todays-most-amazing-ootd-photos-for-girls-wanting-to-be-best-dressed/)
+- [captivating flowers](https://gardening.allwomenstalk.com/of-todays-captivating-flowers-inspo-to-brighten-every-girls-day-2/)
+- [ootd inspo meaning](https://fashion.allwomenstalk.com/of-todays-epic-ootd-inspo-for-girls-who-love-the-best/)
+- [todays nails](https://nails.allwomenstalk.com/of-todays-revolutionary-nail-inspo-for-girls-who-live-for-instagram/)
+- [today's ootd](https://fashion.allwomenstalk.com/of-todays-beyond-gorgeous-ootd-inspo-for-girls-looking-to-crush-the-fashion-world/)
+- [hair and makeup inspo](https://hair.allwomenstalk.com/of-todays-magical-hair-inspo-for-girls-who-want-to-look-chic-af/)
+- [subtle flowers](https://gardening.allwomenstalk.com/of-todays-mesmerizing-flowers-inspo-for-gals-wanting-subtle-accents/)
+- [inspo wallpaper](https://diy.allwomenstalk.com/of-todays-brilliant-design-inspo-for-dolls-that-are-obsessed-with-interior-design/)
+- [1rdvz_fb6hq -site:youtube.com](https://inspiration.allwomenstalk.com/of-todays-encouraging-daily-inspo-to-inspire-self-love/)
+- [swoon worthy](https://hair.allwomenstalk.com/of-todays-swoon-worthy-hair-inspo-for-girls-who-need-inspiration-today/)
 - [18 of Today's Drool Worthy 🤤 Nail Inspo for Women...](https://nails.allwomenstalk.com/of-todays-drool-worthy-nail-inspo-for-women-who-love-new-nail-styles/)
 - [19 of Today's Awesome Nail Inspo for Women Who Wan...](https://nails.allwomenstalk.com/of-todays-awesome-nail-inspo-for-women-who-want-to-invest-in-their-look/)
 

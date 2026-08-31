@@ -42,16 +42,16 @@ You can never have enough options to explore when it comes to having fresh and f
 
 ## Related Posts
 
-- [fun nails for summer](https://nails.allwomenstalk.com/fun-nail-patterns-for-summer/)
-- [pastel french tips](https://nails.allwomenstalk.com/fabulous-french-tip-designs/)
-- [gel manicure designs short nails](https://nails.allwomenstalk.com/dynamic-looks-for-short-nails/)
-- [essie terracotta nail polish](https://nails.allwomenstalk.com/show-stopping-shades-of-nail-polish-for-your-next-pedicure/)
-- [pedi colour](https://nails.allwomenstalk.com/magnificent-mani-pedi-color-pairings-to-make-you-smile/)
-- [nail art pinterst](https://nails.allwomenstalk.com/must-follow-nail-art-pinterest-boards/)
+- [sally hansen iridescent nail polish](https://nails.allwomenstalk.com/popular-nail-polishes-from-sally-hansen-you-should-have-in-your-collection/)
 - [color riche le stylo smoky glistening garnet](https://nails.allwomenstalk.com/eclectic-nail-trends-to-try-this-summer/)
 - [nail ideas for hawaii](https://nails.allwomenstalk.com/super-cute-ideas-for-summer-nail-art/)
+- [essie terracotta nail polish](https://nails.allwomenstalk.com/show-stopping-shades-of-nail-polish-for-your-next-pedicure/)
+- [pedi colour](https://nails.allwomenstalk.com/magnificent-mani-pedi-color-pairings-to-make-you-smile/)
+- [gel manicure designs short nails](https://nails.allwomenstalk.com/dynamic-looks-for-short-nails/)
 - [simple clear nail designs](https://nails.allwomenstalk.com/great-uses-for-clear-nail-polish-besides-your-nails/)
-- [sally hansen iridescent nail polish](https://nails.allwomenstalk.com/popular-nail-polishes-from-sally-hansen-you-should-have-in-your-collection/)
+- [pastel french tips](https://nails.allwomenstalk.com/fabulous-french-tip-designs/)
+- [fun nails for summer](https://nails.allwomenstalk.com/fun-nail-patterns-for-summer/)
+- [nail art pinterst](https://nails.allwomenstalk.com/must-follow-nail-art-pinterest-boards/)
 - [7 Best YouTube Make-up Tutorials ...](https://allwomenstalk.com/7-best-youtube-make-up-tutorials/)
 - [7 Best Blogs on Nail Art ...](https://allwomenstalk.com/best-blogs-on-nail-art/)
 

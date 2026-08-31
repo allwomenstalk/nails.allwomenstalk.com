@@ -146,15 +146,15 @@ See which 30 nail polishes made the cut to be part of the list. ...
 
 ## Related Posts
 
-- [christmas confetti nail polish](https://nails.allwomenstalk.com/best-acrylic-christmas-nails/)
-- [beach summer toe nails](https://nails.allwomenstalk.com/best-beach-summer-toe-nails/)
-- [perfect posture essie](https://nails.allwomenstalk.com/best-nails-etc/)
-- [fancy nails](https://nails.allwomenstalk.com/best-pretty-nails/)
-- [intitle:best "gel nail polish"](https://nails.allwomenstalk.com/best-fancy-nails/)
-- [neon green nails](https://nails.allwomenstalk.com/best-green-nails/)
-- [visual kei nails](https://nails.allwomenstalk.com/best-sharp-nails/)
 - [nails design](https://nails.allwomenstalk.com/best-nails-design/)
+- [visual kei nails](https://nails.allwomenstalk.com/best-sharp-nails/)
+- [perfect posture essie](https://nails.allwomenstalk.com/best-nails-etc/)
 - [site:allwomenstalk.com](https://nails.allwomenstalk.com/best-mod-nails/)
+- [beach summer toe nails](https://nails.allwomenstalk.com/best-beach-summer-toe-nails/)
+- [intitle:best "gel nail polish"](https://nails.allwomenstalk.com/best-fancy-nails/)
+- [christmas confetti nail polish](https://nails.allwomenstalk.com/best-acrylic-christmas-nails/)
+- [neon green nails](https://nails.allwomenstalk.com/best-green-nails/)
+- [fancy nails](https://nails.allwomenstalk.com/best-pretty-nails/)
 - [party nails avon](https://nails.allwomenstalk.com/best-avon-nails/)
 - [8 Totally Chic Nail Colors to Try for Winter ...](https://makeup.allwomenstalk.com/totally-chic-nail-colors-to-try-for-winter/)
 - [8 Sexiest Nail Polish ...](https://allwomenstalk.com/8-sexiest-nail-polish/)

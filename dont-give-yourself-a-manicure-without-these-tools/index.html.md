@@ -174,16 +174,16 @@ This buffer helps you get smooth, sleek nails any day of the week.
 
 ## Related Posts
 
-- [while analyzing sonia's features, you noticed that...](https://nails.allwomenstalk.com/how-to-create-fabulous-striped-nails-using-floss/)
-- [how to make dots on nails without dotting tool](https://nails.allwomenstalk.com/how-to-make-your-own-nail-dotting-tool-with-household-items/)
 - [nails growth tips](https://nails.allwomenstalk.com/tips-to-growing-long-nails-fast/)
-- [what does nails tell about your health](https://nails.allwomenstalk.com/things-your-fingernails-can-tell-you-about-your-health/)
+- [marbling nail polish](https://nails.allwomenstalk.com/tutorials-thatll-teach-you-how-to-make-marble-nail-art/)
+- [while analyzing sonia's features, you noticed that...](https://nails.allwomenstalk.com/how-to-create-fabulous-striped-nails-using-floss/)
 - [your boyfriend no pay for gel](https://nails.allwomenstalk.com/how-to-create-a-gel-manicure-at-home/)
 - [long exotic nails](https://nails.allwomenstalk.com/how-to-create-a-stella-mccartney-inspired-marble-manicure/)
-- [marbling nail polish](https://nails.allwomenstalk.com/tutorials-thatll-teach-you-how-to-make-marble-nail-art/)
-- [loreal riche stylo eye blinged brilliant](https://nails.allwomenstalk.com/this-video-will-show-you-how-to-paint-your-nails-perfectly/)
+- [how to make dots on nails without dotting tool](https://nails.allwomenstalk.com/how-to-make-your-own-nail-dotting-tool-with-household-items/)
 - [at home gel polish peels off](https://nails.allwomenstalk.com/heres-how-to-use-peel-off-nail-polish-the-right-way/)
+- [what does nails tell about your health](https://nails.allwomenstalk.com/things-your-fingernails-can-tell-you-about-your-health/)
 - [how do i clean under my nails](https://nails.allwomenstalk.com/how-to-clean-underneath-your-nails/)
+- [loreal riche stylo eye blinged brilliant](https://nails.allwomenstalk.com/this-video-will-show-you-how-to-paint-your-nails-perfectly/)
 - [Hand and Nail Care: do and Don't for Healthy Hands...](https://allwomenstalk.com/hand-and-nail-care-do-and-dont-for-healthy-hands/)
 - [Pedicure Tips ...](https://allwomenstalk.com/pedicure-tips/)
 
