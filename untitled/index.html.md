@@ -3,7 +3,7 @@ title: "Penhaligon’s has reimagined home scents, and the result is..."
 description: "A Scented Journey of Elegance: Discover Penhaligon’s Reimagined Home Collection; More ..."
 url: "https://nails.allwomenstalk.com/untitled/"
 category: "nails"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # Penhaligon’s has reimagined home scents, and the result is...
