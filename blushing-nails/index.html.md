@@ -3,7 +3,7 @@ title: "Blushing Nails: How to Get the Soft Aura Flush"
 description: "See what blushing nails are, how they compare with aura and jammy nails, and how to sponge a soft, glossy center flush at home."
 url: "https://nails.allwomenstalk.com/blushing-nails/"
 category: "nails"
-last_updated: "2026-10-14"
+last_updated: "2026-10-22"
 ---
 
 # Blushing Nails: How to Get the Soft Aura Flush
