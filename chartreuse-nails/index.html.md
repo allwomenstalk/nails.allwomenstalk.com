@@ -44,6 +44,8 @@ Pale pastel green
 Softer and less saturated
 “A quieter color, without the acid brightness”
 
+For the deeper direction, compare our [olive and martini nail guide](https://nails.allwomenstalk.com/olive-nails/).
+
 These are working descriptions, not standardized color codes. There will be overlap between brands and photographs. A shade sold with an olive name might be the brighter green you want, while a bottle called lime might look too yellow once applied.
 
 If you already have a favorite olive manicure, compare it with the new swatch directly. You may discover you want only a small step brighter rather than the loudest chartreuse available. There is room between subtle and fluorescent, and you can ask to see it.
