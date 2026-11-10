@@ -1,9 +1,9 @@
 ---
 title: "7 on Trend Nail Polish Colors for Spring 2013 ..."
-description: "Pale & Natural; Dark with a Twist; Two Tonal Manis; Nail Art; Metallics; More ..."
+description: "Pale & Natural; Dark with a Twist; Two Tonal Manis; Nail Art; Metallics"
 url: "https://nails.allwomenstalk.com/on-trend-nail-polish-colors-for-spring/"
 category: "nails"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 on Trend Nail Polish Colors for Spring 2013 ...
@@ -57,14 +57,14 @@ Which spring 2013 nail polish trend are you going to rock first? And what about 
 ## Related Posts
 
 - [fun nail](https://nails.allwomenstalk.com/fun-nail-polish-combinations-to-try-this-spring/)
-- [cute animal nail art designs](https://nails.allwomenstalk.com/cutest-animal-nail-art-tutorials/)
-- [chanel.nail polish](https://nails.allwomenstalk.com/budget-friendly-dupes-for-the-most-coveted-high-end-nail-polishes/)
-- [latest toenail colors](https://nails.allwomenstalk.com/best-toe-nail-polish-colors-to-wear-this-spring/)
 - [leather effect nail polish](https://nails.allwomenstalk.com/top-textured-nail-polishes/)
 - [best nail color for everyday](https://nails.allwomenstalk.com/colors-you-need-to-start-a-nail-polish-collection/)
-- [nail art decal](https://nails.allwomenstalk.com/best-nail-art-decals/)
-- [gold holographic nail polish](https://nails.allwomenstalk.com/holographic-nail-colors-you-must-check-out/)
 - [uses of nail polish](https://makeup.allwomenstalk.com/uses-for-nail-polish/)
+- [gold holographic nail polish](https://nails.allwomenstalk.com/holographic-nail-colors-you-must-check-out/)
+- [latest toenail colors](https://nails.allwomenstalk.com/best-toe-nail-polish-colors-to-wear-this-spring/)
+- [nail art decal](https://nails.allwomenstalk.com/best-nail-art-decals/)
+- [cute animal nail art designs](https://nails.allwomenstalk.com/cutest-animal-nail-art-tutorials/)
+- [chanel.nail polish](https://nails.allwomenstalk.com/budget-friendly-dupes-for-the-most-coveted-high-end-nail-polishes/)
 - [nails inc palace gardens](https://nails.allwomenstalk.com/top-nail-polishes-for-spring/)
 - [9 on-Trend Spring Nail Colors ...](https://makeup.allwomenstalk.com/on-trend-spring-nail-colors/)
 - [7 Most Fashionable Nail Polishes of Today ...](https://allwomenstalk.com/7-most-fashionable-nail-polishes-of-today/)

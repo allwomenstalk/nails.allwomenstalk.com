@@ -1,9 +1,9 @@
 ---
 title: "16 of Today's beyond Gorgeous Nail Inspo for Dolls Who Need Serious Ideas ..."
-description: "@nailsbymei; @essiepolish; @cndworld; @nailsmagazine; @glistenandglow1; More ..."
+description: "@nailsbymei; @essiepolish; @cndworld; @nailsmagazine; @glistenandglow1"
 url: "https://nails.allwomenstalk.com/of-todays-beyond-gorgeous-nail-inspo-for-dolls-who-need-serious-ideas/"
 category: "nails"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 16 of Today's beyond Gorgeous Nail Inspo for Dolls Who Need Serious Ideas ...

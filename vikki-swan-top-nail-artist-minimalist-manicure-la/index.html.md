@@ -1,9 +1,9 @@
 ---
 title: "Vikki Swan - The Nail Artist Redefining Global Beauty Standards from Her LA Studio …"
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "In the nail industry , where attention to detail and flawless shapes are highly valued , the name Victoriia Lebedinskaia — Vikki Swan — is well known to many…"
 url: "https://nails.allwomenstalk.com/vikki-swan-top-nail-artist-minimalist-manicure-la/"
 category: "nails"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Vikki Swan \- The Nail Artist Redefining Global Beauty Standards from Her LA Studio …

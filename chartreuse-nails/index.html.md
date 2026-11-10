@@ -3,7 +3,7 @@ title: "Chartreuse Nails: How to Wear the Bright Yellow-Green Manicure"
 description: "Chartreuse nails sit between vivid yellow and green. They are brighter and more acidic than a muted olive manicure, so even a small French tip can become t"
 url: "https://nails.allwomenstalk.com/chartreuse-nails/"
 category: "nails"
-last_updated: "2026-11-07"
+last_updated: "2026-11-10"
 ---
 
 # Chartreuse Nails: How to Wear the Bright Yellow\-Green Manicure

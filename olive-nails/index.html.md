@@ -3,7 +3,7 @@ title: "Olive Nails: The Martini Manicure and How to Wear It"
 description: "Olive nails are a muted yellow-green manicure, usually deeper and earthier than lime. Martini nails can mean that same green worn on its own or a manicure"
 url: "https://nails.allwomenstalk.com/olive-nails/"
 category: "nails"
-last_updated: "2026-11-07"
+last_updated: "2026-11-10"
 ---
 
 # Olive Nails: The Martini Manicure and How to Wear It

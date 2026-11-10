@@ -1,9 +1,9 @@
 ---
 title: "7 Pieces of Nail Art You Can Create with a Sharpie ..."
-description: "White Patte Nails; Purple Watercolor Nails; Polka Dots and Chalkboard Nails; Watercolor Nails; Rainbow Watercolor Nails; More ..."
+description: "White Patte Nails; Purple Watercolor Nails; Polka Dots and Chalkboard Nails; Watercolor Nails; Rainbow Watercolor Nails"
 url: "https://nails.allwomenstalk.com/pieces-of-nail-art-you-can-create-with-a-sharpie/"
 category: "nails"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Pieces of Nail Art You Can Create with a Sharpie ...
@@ -42,16 +42,16 @@ If you follow the advice in this tutorial, then you'll have nails everyone will 
 
 ## Related Posts
 
-- [basketball toenails](https://nails.allwomenstalk.com/basketball-nails-thatll-get-you-pumped-for-march-madness/)
-- [coral ombre nails](https://nails.allwomenstalk.com/ombre-nail-tutorials-thatll-teach-you-how-to-look-your-best/)
-- [minimalist disney nails](https://nails.allwomenstalk.com/amazing-pieces-of-minimalist-nail-art/)
-- [green themed nails](https://nails.allwomenstalk.com/this-st-paddys-nail-art-will-make-others-green-with-envy/)
-- [green bay packers nail designs](https://nails.allwomenstalk.com/show-your-team-spirit-with-this-super-bowl-nail-art/)
 - [3 dimensional nail art](https://nails.allwomenstalk.com/3-d-nail-art-all-of-your-friends-will-flip-over/)
+- [basketball toenails](https://nails.allwomenstalk.com/basketball-nails-thatll-get-you-pumped-for-march-madness/)
 - [loreal paris la maximalist eyeshadow skirt](https://nails.allwomenstalk.com/furry-nails-are-a-bizarre-new-nail-trend/)
+- [coral ombre nails](https://nails.allwomenstalk.com/ombre-nail-tutorials-thatll-teach-you-how-to-look-your-best/)
 - [nail style names](https://nails.allwomenstalk.com/check-out-this-valentines-day-nail-art-inspiration/)
-- [nail art birds](https://nails.allwomenstalk.com/nail-infographics-thatll-make-you-look-pretty-as-a-picture/)
+- [green themed nails](https://nails.allwomenstalk.com/this-st-paddys-nail-art-will-make-others-green-with-envy/)
+- [minimalist disney nails](https://nails.allwomenstalk.com/amazing-pieces-of-minimalist-nail-art/)
+- [green bay packers nail designs](https://nails.allwomenstalk.com/show-your-team-spirit-with-this-super-bowl-nail-art/)
 - [nab beauty](https://nails.allwomenstalk.com/nails-colors-you-should-nab-for-spring/)
+- [nail art birds](https://nails.allwomenstalk.com/nail-infographics-thatll-make-you-look-pretty-as-a-picture/)
 - [7 Best Blogs on Nail Art ...](https://allwomenstalk.com/best-blogs-on-nail-art/)
 - [7 Superb Tips on Doing Nail Art for Clumsy Hands ....](https://nails.allwomenstalk.com/superb-tips-on-doing-nail-art-for-clumsy-hands/)
 

@@ -3,7 +3,7 @@ title: "Grey Nails: Milky, Mid-Tone, Charcoal, and Steel Manicure Ideas"
 description: "Choose milky, mid-tone, charcoal, or steel grey nails with a guide to undertones, finishes, designs, and a clear request to take to your nail artist."
 url: "https://nails.allwomenstalk.com/grey-nails/"
 category: "nails"
-last_updated: "2026-11-07"
+last_updated: "2026-11-10"
 ---
 
 # Grey Nails: Milky, Mid\-Tone, Charcoal, and Steel Manicure Ideas
