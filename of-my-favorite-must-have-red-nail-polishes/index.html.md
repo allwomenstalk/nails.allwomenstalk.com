@@ -1,6 +1,6 @@
 ---
 title: "Winter Cherry Nails: How to Wear a Richer Red Manicure"
-description: "Winter cherry nails are a deeper-looking red manicure with a glossy finish: a useful reference if you want red without the bright, summery effect of a ligh."
+description: "Winter cherry is a deeper red manicure with a glossy finish. Compare shades, plan the shape, and follow the steps for a neat red-polish look."
 url: "https://nails.allwomenstalk.com/of-my-favorite-must-have-red-nail-polishes/"
 category: "nails"
 last_updated: "2026-11-12"
